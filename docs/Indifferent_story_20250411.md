@@ -1,11 +1,11 @@
-The notification chimed on my phone: "New Nvidia drivers available." Finally! I mashed the update button, already picturing the ray-traced reflections in *Cyberpunk 2077* looking even *more* chrome. While that downloaded, I scrolled through Reddit, half-listening to the latest lofi beats compilation.
+Okay, so after scrolling through Reddit today, here’s what’s bouncing around in my head.
 
-Then I saw it: "US Just Raised Tariffs on China to 125%!" Ugh, tariffs. Seriously? It always messes with the price of stuff. First GPUs, now what? I guess I should care, right? Something about bulk shipping, splitting shipments... sounds like a headache. I'm just trying to get my hands on the new RGB keyboard. Will *that* be affected? Sigh.
+The airport hotel was buzzing, not with vacationers, but with a weird, tense energy. I was just trying to snag a decent rate for Comic-Con next month, but the lobby felt like a set from a bad spy movie. Guys in dark suits, too-serious expressions, the kind who look like they practice glaring in the mirror. Saw one dude with a "tactical" backpack that looked like it could survive a nuclear winter. Probably just had a laptop and a protein bar in there, but still.
 
-Below that was a post from someone trying to sell planners on Shopify. SEO this, bundle apps that... It's just like, so many options to sell stuff and so much competition. I guess you gotta hustle.
+Then I saw the news about the kid, the one who came here when he was practically a baby, now stressing about ICE. Like, seriously? He’s got a job, a work permit, probably pays taxes. What’s the point of all this? It's like when the cops pulled over my friend because his taillight was out, but then they spent 20 minutes asking him where he was born.
 
-Honestly, the world feels like one giant, chaotic marketplace. Everyone's trying to sell something, everyone's trying to game the system, and governments are throwing wrenches into the gears with tariffs and regulations. And me? I'm just here for the tech, the memes, and maybe a decent cup of coffee.
+It’s all just…layers of stress. Like that traffic ticket post. First ticket ever, and now this dude has to navigate the whole court system, worry about points on his license. It’s like the universe is designed to make things as difficult as possible. I saw a meme about it, actually – a picture of a cat trying to get through a doorway filled with lasers, captioned "Life." Accurate.
 
-I saw a meme about a dog wearing sunglasses that made me laugh. Better than thinking about international trade, right?
+The other thing is, everyone’s just trying to find a workaround. The "self-deport or marriage" post? Depressing. Like, love shouldn't be a legal loophole. But you can't blame the person for trying to find a way to live their life.
 
-The download finished. I fired up *Cyberpunk*. The neon glow of Night City washed over my face. For a moment, the tariffs, the SEO, the endless hustle faded away. Just me, my rig, and some sweet, sweet polygons. Maybe ignorance *is* bliss.
+I’m just trying to avoid all of it. New earbuds dropped today, noise-canceling, supposed to be amazing. Maybe if I just crank up the music loud enough, I can drown out the anxiety. Maybe I'll just post a reaction meme and move on.
