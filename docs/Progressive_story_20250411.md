@@ -1,0 +1,11 @@
+The chipped ceramic mug warmed my hands as I scrolled through the latest threads. Tariffs on Chinese goods skyrocketing to 125%? Seriously? It's always the small businesses, the individual entrepreneurs, who get squeezed the hardest. Another brick in the wall of economic inequality.
+
+My gaze drifted to the stack of handmade journals on my desk, the ones I’d been meticulously crafting, dreaming of selling online. It’s a passion project, born from a desire to offer something real, something tangible in this increasingly digital world. But how can I compete when these tariffs make importing even the simplest materials an economic tightrope walk?
+
+And then there are the Shopify sellers, desperately seeking bundle apps, trying to make a living by offering deals, just trying to stay afloat. It feels like we're all scrambling for scraps while the big corporations hoard the whole damn feast. It's not just about the money, though, is it? It's about the dream, the ability to create, to build something of value. These tariffs are a direct attack on that dream, on the potential for a more equitable economy where small businesses can thrive.
+
+I saw a post from someone struggling with SEO for their planner shop. So many people pouring their hearts and souls into these ventures, fighting against algorithms and economic structures designed to favor the already powerful. It’s exhausting. And it’s infuriating.
+
+This isn’t just about tariffs or SEO. It’s about a system that consistently prioritizes profit over people. It’s about a world where the deck is stacked against the underdog, where creativity and hard work aren’t enough to guarantee success.
+
+I took a long sip of my coffee, the warmth a small comfort. The fight felt immense, but it was a fight worth fighting. We need to build a new table, one where everyone has a seat, where creativity flourishes, and where economic justice isn't just a buzzword but a reality. The journals on my desk seemed to hum with a quiet energy, a reminder that even small acts of creation can be acts of resistance. The fight continues.
