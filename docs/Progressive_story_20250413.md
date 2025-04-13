@@ -1,0 +1,11 @@
+The flickering neon sign of the "American Dream Diner" cast a sickly yellow glow on Maya's face. She stared at the greasy spoon, a knot forming in her stomach. It was supposed to be a symbol of opportunity, wasn’t it? The kind her parents had chased across continents. But all Maya felt was a bone-deep weariness.
+
+Her parents, South Asian immigrants, had landed here in the '90s, wide-eyed and hopeful. Doctors and teachers, they’d found stability, community, a slice of that promised land. Maya, born on American soil, was supposed to be even further ahead. Two master's degrees, a chameleon career hopping between healthcare and tech, and yet… she was drowning.
+
+The Caracalla Edict, she remembered reading about, buzzed in her mind. Granting citizenship to all, a unifying act, but one that inevitably shifted the power dynamics, the economic landscape. Had the promise of American citizenship, so freely offered to her, become a gilded cage?
+
+Her phone buzzed. Another email from her boss, demanding a report by morning, despite it being nearly midnight. The 60-hour workweeks, the constant pressure to perform, the subtle but persistent microaggressions – "But where are you *really* from?" – it all chipped away at her.
+
+She thought of her parents, now retired, enjoying the fruits of their labor, a comfortable suburban life they'd carved out. Had they known this was the future they were building for her? A relentless grind, a constant scramble for survival in a system rigged against her.
+
+The diner's neon sign sputtered again, momentarily plunging Maya into darkness. She sighed. Maybe the American Dream wasn't a diner, but a mirage. A promise whispered across oceans, that faded with each generation, each new wave of immigrants swallowed by the insatiable engine of capitalism. She pushed open the diner door, the smell of cheap coffee and desperation hitting her like a wall. She needed caffeine. She needed a plan. She needed to figure out how to reclaim her life from the jaws of this relentless dream.
