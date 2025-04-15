@@ -1,0 +1,11 @@
+The courthouse shimmered with a false promise of justice. I watched the CNN video again, the one with the agents tackling the Venezuelan man. The way he fell, the thud, the elderly bystander with the cane knocked aside – it was a microcosm of everything wrong. This country, built on the backs of immigrants, now treats them like threats, like burdens.
+
+I think of that second-generation American, stuck in the grind, working 60-hour weeks, facing subtle discrimination despite speaking perfect English. Their parents came here chasing a dream, and maybe they caught a glimpse of it, but now their child is drowning in a system that demands constant hustle and offers little in return.
+
+And then there's the grief. The cultural bereavement that no one talks about. Being ripped from one world and thrust into another, then ripped back again, leaving you stranded between identities, fluent in no language, at home nowhere. It's a non-death, a slow erosion of self that leaves you perpetually searching for a place that doesn't exist.
+
+Even for those who "make it," who navigate the labyrinthine immigration laws, there are still hurdles. The woman who can't read or write, facing a citizenship test that demands literacy she doesn't possess. The low-quality photo on a DS-160 form, a tiny glitch that could derail an entire life. The constant anxiety, the fear of making a mistake, of saying the wrong thing, of being deemed unworthy.
+
+It's not about open borders or closed borders. It's about *humanity*. It's about recognizing the shared struggles, the common desire for a safe place to live, to work, to raise a family. It's about dismantling the systems that pit us against each other, that prioritize profit over people, that turn empathy into a weakness.
+
+The Edict of Caracalla, granting citizenship to all free men, wasn't perfect, but it was a step towards recognizing our shared humanity. We need to find that spirit again. We need to build a world where everyone belongs, where everyone has the opportunity to thrive, where grief is acknowledged, and where justice isn't just a word etched in stone, but a living, breathing reality. I will fight for that world, one Reddit comment, one protest, one conversation at a time.
