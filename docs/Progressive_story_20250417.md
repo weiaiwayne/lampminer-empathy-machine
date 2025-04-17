@@ -1,0 +1,11 @@
+The courthouse air hung thick with fear, a tangible thing you could taste in the back of your throat. I saw it in the set of the Venezuelan man's jaw, in the tremor of the elderly bystander’s hand as she reached for her fallen cane. Zero empathy, the headline screamed. And it was true. The agents, faces tight, were just following orders, cogs in a machine grinding down human lives.
+
+It reminded me of the story of the second-generation American, caught in the gears of a system that promised so much and delivered so little. The constant grind, the pressure, the feeling of never quite belonging, even with an American passport. Was this the "American Dream" my parents sacrificed everything for?
+
+Then there's the au pair, caught in the labyrinth of visa regulations, a single trip back home threatening to unravel her carefully constructed life. I think about the woman in Mexico, desperately trying to get her husband to the US in time for the birth of their child, a basic human right turned into a bureaucratic nightmare. 
+
+It’s not just about borders, I realize. It’s about the grief of leaving a life behind, the cultural bereavement that no one seems to understand unless they've lived it. The immigrant who can't read or write, trapped in a system that demands literacy in a language they never learned.
+
+The Clicktrans scam whispers of the precarity of it all, the constant threat of being exploited, of losing everything you’ve worked for. It’s a world where a typo on a form can derail your entire future, where a past deportation can haunt you for a lifetime, where your own child might feel pressured to join the military to protect you. 
+
+I want to scream, to shake people awake. This isn’t just about immigration policy; it’s about human dignity. It’s about creating a world where everyone has the chance to thrive, not just survive. A world where empathy triumphs over bureaucracy, where compassion outweighs fear, and where the promise of a better life isn't just a cruel illusion.
