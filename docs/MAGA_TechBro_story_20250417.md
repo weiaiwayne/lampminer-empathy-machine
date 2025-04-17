@@ -1,0 +1,11 @@
+The wind howled a digital dirge through the server farms, mimicking the anxieties swirling in the gut of every patriot. Maria, a coder from Guadalajara by way of MIT, stared at the lines of code shimmering on her screen. It was a program designed to filter misinformation, a noble cause, but lately, it felt like she was just policing thought, sanitizing the American narrative to fit some coastal elite's agenda.
+
+Her parents, bless their entrepreneurial hearts, had chased the American dream, starting a taco truck in Austin that became a local institution. But the dream felt tarnished now. The woke mob was boycotting their truck because they refused to put pronouns on the menu board. "Respect tradition," her father had said, his voice thick with the grit of generations who knew what America stood for.
+
+Meanwhile, she read stories on Reddit about a young man, a legal citizen, whose parents were terrified of deportation, their fate tethered to his decision to enlist in the military. The system was rigged, she thought, a cruel game of chess where pawns were sacrificed for political gain.
+
+Then there was Ahmed, a brilliant engineer stuck in a bureaucratic nightmare, his green card delayed, his potential stifled by red tape and the lingering suspicion that he wasn't "one of us." Maria knew Ahmed. They'd bonded over their shared love of free markets and their disdain for socialist policies. He was more American than half the virtue-signaling activists she saw online.
+
+The Caracalla Edict floated in her mind, a cautionary tale of empires diluted by unchecked expansion. Was America destined to repeat history, to crumble under the weight of its own idealism? Or could it rediscover its rugged individualism, its commitment to meritocracy, its unwavering belief in the American experiment?
+
+Maria closed her laptop, the digital wind still screaming. The answer, she knew, wasn't in the code. It was in the hearts of the people, in the courage to stand for what's right, even when it's unpopular. She would call her parents, tell them she was proud of them. Then, she would find Ahmed and buy him a beer, a small act of defiance against the forces that threatened to tear the nation apart. The American dream, she decided, was worth fighting for, one line of code, one taco, one beer at a time.
