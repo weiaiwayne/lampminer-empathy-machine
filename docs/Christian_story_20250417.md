@@ -1,0 +1,11 @@
+The old woman’s hands, gnarled like ancient olive branches, trembled as she clutched the rosary. Each bead, worn smooth by years of whispered prayers, felt like a promise against the rising tide of fear. Her son, barely a man himself, had been swept up in the dragnet, a cross tattooed on his arm the only testament to his faith in a world that seemed determined to tear it down.
+
+The news from El Salvador was a constant storm, Bukele’s iron fist squeezing the life out of the already vulnerable. Cecot loomed in her mind, a concrete nightmare where the innocent were swallowed whole. She prayed for him, for her grandson, a boy born on American soil, now caught between two worlds, his heart aching for a father he might never see again.
+
+Her own journey had been different, a slow bleed of grief as she navigated a foreign land, a land of promise that often felt like a gilded cage. The language, a wall she could never quite scale, the customs, a maze she could never fully navigate. She remembered the ache of *saudade*, the longing for the familiar scent of *pupusas* and the warmth of her mother's embrace.
+
+Now, this new fear, this threat of deportation, felt like a betrayal. Had she not paid her dues? Had she not worked hard, raised a family, contributed to this nation? Yet, the shadow of the law loomed, indifferent to her years of quiet obedience.
+
+She thought of Caracalla, that ancient emperor who extended citizenship, a gesture of unity, or perhaps a calculated move for power. Was there a lesson there? A hope for a more compassionate future?
+
+No, she thought, clutching the rosary tighter. Hope wasn’t something to be passively wished for. It was something to be fought for, prayed for, earned through unwavering faith and relentless love. She would find a lawyer, even if it meant selling her few precious belongings. She would fight for her son, for her grandson, for the right to a life free from fear, a life where faith and family could flourish, even in the face of the storm. She would trust in the Lord, and in His unwavering promise of salvation.
