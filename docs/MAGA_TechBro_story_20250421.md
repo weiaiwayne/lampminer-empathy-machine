@@ -1,0 +1,9 @@
+The flickering screen illuminated my face, another late night doomscroll through the digital trenches. These Reddit threads, man, they're a microcosm of everything that's wrong, and occasionally, everything that's right, with this country. This SEVIS thing, though... that's some Kafkaesque bullshit right there. DHS terminating student visas based on arrest records *alone*? No conviction, no due process, just *poof*, gone. That's not the America I believe in. That's not the due process that is guaranteed to us.
+
+And then you've got that kid worried about his dad, the Salvadoran mechanic with the cross tattoo. Scared of Bukele's prison and Trump's deportation machine. The kid's heart would shatter? Mine kinda does too, reading that. This country was built on the backs of immigrants, people chasing a better life, not running from some strongman's prison.
+
+But then I see the other side, the stories of struggle, the disillusionment. The second-generation kid stuck in a toxic job cycle, the migrant grief, the feeling of being perpetually out of place. It's not all sunshine and rainbows, this "American Dream." There's a cost, a grind, a constant pressure to adapt, to assimilate, to *earn* your place.
+
+Caracalla gave citizenship to everyone, right? And look what happened to Rome. Did it make it stronger? Or did it dilute the culture, open the gates to chaos? That's the question, isn't it? How do you balance the open arms with the preservation of what makes America...America?
+
+I slammed my laptop shut. Enough. Time to get back to building. Building tech, building wealth, building a better future. Because complaining on Reddit ain't gonna fix it. We need solutions, innovation, and a return to the principles that made this country great in the first place: individual liberty, limited government, and a relentless pursuit of progress. And maybe, just maybe, a little more empathy for the guy with the cross tattoo.
