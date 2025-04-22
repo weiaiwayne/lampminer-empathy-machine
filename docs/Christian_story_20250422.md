@@ -1,0 +1,11 @@
+The flickering screen illuminated my face, a mosaic of Reddit threads reflecting in my eyes. Caracalla's edict, a second-generation immigrant's lament, a cry of migratory grief – all swirling in the digital ether. It reminded me of the Tower of Babel. We humans, scattered and yearning, building digital towers hoping for connection, for understanding, for a home.
+
+The story of the South Asian son, grinding in a toxic system, resonated. He sought the American Dream, only to find a soul-crushing treadmill. Where is the shalom in that? Where is the rest God promises? It's a broken world, I thought, tainted by sin, where even the promise of opportunity becomes a gilded cage.
+
+Then there was the Venezuelan man tackled in the courthouse. A jarring image. Justice, meant to be blind, seemed to stumble, blinded by prejudice. I recalled Proverbs 16:8, "Better a little with righteousness than much gain with injustice." The agents, in their zeal, forgot the dignity of the man, the image of God stamped on his very being.
+
+The threads on immigration law, on H1B visas, on the fear of deportation – a tangled web of human lives caught in bureaucratic machinery. Each click a prayer for mercy, for understanding, for a path forward. And the mother in Mexico, wanting to give birth in America for better care. The same basic human desire for safety and well-being, the same longing that drove the Israelites to the promised land.
+
+But the story that truly pierced my heart was the child whose parents wanted him to enlist in the military to prevent their deportation. A child sacrificing his own future, his own dreams, on the altar of parental security. This is not the way it should be. This is not God's intention. It is a distortion of family, a consequence of policies that dehumanize and divide.
+
+I closed my laptop, the glow fading. The digital world offered glimpses of hope, connection, and shared struggle. But it also amplified the brokenness, the injustice, the fear. My calling, I realized, was not just to understand the world through theological lenses, but to be a light in the darkness, a voice for the voiceless, a hand extended in compassion. To seek shalom, not just for myself, but for all those caught in the currents of this fallen world. To be a witness to the Kingdom, where justice and mercy meet.
