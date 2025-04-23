@@ -1,0 +1,11 @@
+The weight of the world, it seems, is carried in expired passports and misspelled names. I read these digital confessions, these desperate pleas for guidance, and I see shadows of the exile the Israelites faced. They too, felt the sting of foreign soil, the longing for a homeland, the fear of losing their identity.
+
+A young man frets over his Salvadorian father, haunted by the specter of Bukele's prisons, the cross tattooed on his father's arm now a mark of potential doom. Another, a woman paralyzed by the fear that her asylum claim will damn her marriage to a citizen, choosing isolation over faith in the system. It reminds me of Lamentations, a lament for a lost nation, a prayer for deliverance from the hands of oppressors.
+
+Then there's the second-generation American, wrestling with disillusionment. The promised land of opportunity has turned into a desert of toxic work environments and the constant need to prove his belonging. He seeks fulfillment beyond the grind, echoing the search for meaning that resonates throughout Ecclesiastes: "Meaningless! Meaningless!" says the Teacher. "Utterly meaningless! Everything is meaningless."
+
+I see echoes of Caracalla's edict in the pleas for humanitarian visas, the anxieties surrounding green card applications. The expansion of citizenship, meant to unify, instead reveals the cracks in the empire, the uneven distribution of its benefits, the constant tension between inclusion and exclusion.
+
+Yet, amidst the anxieties, there are sparks of hope. A wife determined to learn immigration law to fight injustice, a community rallying to support a family facing deportation. These small acts of resistance, acts of grace, remind me that even in the darkest times, the light of Christ can shine through.
+
+I pray for these struggling souls, that they find strength in their faith, that they find community in their shared experiences, and that they find justice in a world that often seems indifferent to their plight. I pray that they remember that they are not forgotten, that God sees them, and that even in exile, there is always the promise of redemption.
