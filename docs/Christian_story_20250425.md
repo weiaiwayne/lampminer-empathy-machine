@@ -1,0 +1,13 @@
+The flickering screen cast long shadows across my worn Bible, another late night spent wrestling with the complexities of this world. Reddit, a digital Tower of Babel, had been my unlikely classroom. Tonight, the threads of immigration, citizenship, and belonging were particularly tangled.
+
+A young woman, scared for her undocumented father, haunted my thoughts. The fear of deportation, the specter of a Salvadorian prison camp – it was a chilling echo of the Israelites’ exile, the rending of families, the loss of homeland. I prayed for her, for her father, for all those caught in the gears of a system that seemed to value paperwork over people.
+
+Then there was the second-generation American, wrestling with the promise and the reality of the American Dream. He spoke of discrimination, of the relentless grind, of the yearning for a life beyond mere survival. It reminded me of the parable of the talents – are we truly using our gifts to build God's kingdom, or are we merely chasing earthly success, only to find it fleeting and unsatisfying?
+
+Caracalla's edict, extending citizenship across the Roman Empire, offered a historical lens. Was it a unifying act of inclusion, or a cynical power play? It mirrored the debates raging today – the tensions between security and compassion, the anxieties about cultural cohesion, the economic implications of open borders. We are called to welcome the stranger, but also to be wise stewards of the resources we have been given. It is a delicate balance, a constant striving for justice tempered with mercy.
+
+The raw grief of the immigrant, torn from their roots, resonated deeply. It wasn't just about physical displacement; it was the loss of identity, the struggle to find belonging in an alien landscape. It reminded me of Christ's own exile, his journey from heaven to earth, his experience of being a stranger in his own land.
+
+The news story of the wrongly deported man, his wife forced into hiding after the government carelessly exposed her address, was a stark reminder of the fallibility of those in power. How easily can the mechanisms of justice be twisted, the vulnerable exposed, the innocent punished? We must hold our leaders accountable, demand transparency, and advocate for those who have been wronged.
+
+I closed my Bible, the weight of the world pressing heavily on my heart. These digital voices, these fragmented stories, were a call to action. I must engage with compassion, advocate for justice, and pray for wisdom. The world is a broken place, but God's grace is sufficient.
