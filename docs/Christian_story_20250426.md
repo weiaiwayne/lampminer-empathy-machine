@@ -1,0 +1,11 @@
+The flickering screen cast shadows on my worn Bible. Another story of injustice, another instance where the powerful seem to disregard the God-given dignity of the vulnerable. This time, it's about a memo, a legal justification to bypass the rule of law, to strip away protections from those already teetering on the edge. The words "no warrant needed" echoed in my mind, a chilling testament to how easily power can corrupt.
+
+I think of the immigrant woman I saw at church last Sunday, her eyes filled with a quiet fear as she spoke of her husband's deportation hearing. He worked hard, provided for his family, yet now faced the threat of being torn from their lives. I wonder if this memo could be used against him, against countless others who have come to this land seeking refuge and opportunity.
+
+It reminds me of Caracalla's Edict, a seemingly benevolent act that ultimately served political expediency. Are we repeating history, offering citizenship with one hand while snatching away fundamental rights with the other? The Scriptures warn against such hypocrisy, reminding us to treat the foreigner with justice and compassion, for we were once foreigners ourselves (Exodus 22:21).
+
+The second-generation immigrant's experience also weighs on me. They worked diligently, and yet the discrimination and the toxic work environment leave them disillusioned. The "American Dream" feels more like a relentless grind, a far cry from the promise of a life lived in dignity and purpose. Is this the fruit of our labor?
+
+The news of the wrongly deported man and his wife forced into hiding ignites my anger. How can a government, entrusted with protecting its people, become a source of such terror? Where is the accountability? Where is the empathy? It's a stark reminder of the brokenness of this world, a consequence of sin that permeates every level of society.
+
+I close my eyes and pray. I pray for justice, for mercy, for the strength to stand against injustice, even when it seems overwhelming. I pray for those who are afraid, for those who are suffering, for those who have lost hope. I pray that we, as Christians, will be a light in the darkness, a beacon of compassion and truth, reflecting the love of Christ in a world desperately in need of redemption.
