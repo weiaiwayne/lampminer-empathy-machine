@@ -1,0 +1,13 @@
+The flickering screen cast a pale light on my worn study Bible. Headlines swam in my mind – "NOLA ICE deports 4 y.o. US citizen with CANCER," "Wife of wrongly deported Maryland man forced into safe house." The digital world, a chaotic tapestry of human experience, painted a grim picture. Caracalla’s edict echoed faintly – citizenship, a promise of belonging, now seemingly fragile, easily revoked.
+
+I thought of the young mother in New Orleans, her child, a citizen by birth, ripped away from the very land that should have protected him. Where was the compassion, the image of God, in that act? It felt like a violation of the sacred covenant, a betrayal of the promise to care for the vulnerable.
+
+Then there's the second-generation American, caught in the grind, facing discrimination despite their birthright. Their story resonated with the parable of the talents – a desire to use gifts for good, hampered by systemic burdens. The scripture says, “From everyone who has been given much, much will be demanded; and from the one who has been entrusted with much, much more will be asked.” Are we, as a nation, living up to that standard?
+
+The grief of the immigrant, the cultural bereavement, weighed heavily. To be uprooted, to lose a sense of home, is a profound suffering. The Psalmist cries out, “By the rivers of Babylon we sat and wept when we remembered Zion.” This pain, I realized, is a shared human experience, echoing across continents and generations.
+
+The fear, the uncertainty, it all felt palpable. The news of ICE requesting birth certificates of adult children of immigrants – what was the rationale? It seemed to sow seeds of distrust, a stark contrast to the call for unity and love.
+
+Yet, amidst the darkness, flickers of hope persisted. The stories of communities rallying around those in need, of lawyers offering pro bono services, of ordinary people speaking out against injustice – these were glimmers of light in the encroaching shadows.
+
+I closed my Bible, the words of Micah ringing in my ears: "He has shown you, O mortal, what is good. And what does the Lord require of you? To act justly and to love mercy and to walk humbly with your God." Justice, mercy, humility. These were the compass points, the guiding principles in a world increasingly adrift. My prayer was that the church would rise to the moment, embodying these virtues, and offering a beacon of hope to those who felt lost and afraid.
