@@ -1,0 +1,11 @@
+The map pulsed red. Not a geographical map, but one etched in my mind, a heat signature of injustice. Each red dot represented a 287(g) agreement, a pact between ICE and local law enforcement, blurring the lines, turning cops into deportation agents. I saw the story of Kilmar Abrego Garcia's wife, Jennifer Vasquez Sura, forced into hiding after the government carelessly posted her address online. The casual cruelty, the disregard for human life, it was sickening.
+
+Then I remembered the Reddit thread about the four-year-old US citizen with cancer, deported to Honduras. Cancer. Deported. The words clawed at my throat. How could a system designed to protect, to offer refuge, become so monstrous?
+
+Reading the desperate pleas for help – the student struggling with SEVIS, the green card holder facing expiring status, the au pair navigating visa renewals – they painted a picture of a system deliberately designed to be confusing, to trip people up, to create a constant state of fear and uncertainty.
+
+I thought about the second-generation American, the child of immigrants who had worked hard, bought homes, found community. Now, that child, despite being a native English speaker, faced discrimination, felt the pressure of a toxic work culture, and questioned the very promise of the American Dream.
+
+The dream was fractured, I realized. It was a dream built on the backs of immigrants, on their hopes and sacrifices, only to be snatched away by bureaucracy, by prejudice, by a system that prioritized profit and power over people.
+
+I scrolled through the threads, seeing the anxiety, the heartbreak, the relentless grind. It was a constant battle against a system stacked against them.  The weight of it all was heavy, a crushing realization that the fight for justice, for equity, for true belonging, was far from over. We need to dismantle these systems, rewrite the narratives, and build a world where compassion and human dignity reign supreme. The map pulsed red, a reminder of the work that needed to be done.
