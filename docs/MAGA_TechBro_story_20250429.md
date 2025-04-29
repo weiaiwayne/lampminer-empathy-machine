@@ -1,0 +1,11 @@
+The cracked screen of my phone illuminated my face, reflecting the flickering anxieties gleaned from the Reddit threads. Another story about a wrongly deported man, a child with cancer caught in the crossfire. The algorithm, bless its heart, knows my biases: MAGA, TechBro, Libertarian. It feeds me confirmation, sprinkled with just enough dissent to keep me clicking.
+
+Caracalla's edict, they say, echoes in modern immigration debates. Citizenship for all free men, a Roman power play disguised as benevolence. Sounds familiar. Open borders, they scream, diluting the essence of American exceptionalism. But I see opportunity. Bring in the best, the brightest, the *builders*. Leave the rest.
+
+Then there's the second-generation immigrant, caught between two worlds, grinding for the American Dream only to find a toxic work culture and discrimination. I get it. The system isn't perfect. Bureaucracy, lack of vision, the endless churn. But that's where tech comes in. We can streamline, optimize, *disrupt* the inefficiencies. Automation, AI, can free us from the drudgery, let us focus on innovation.
+
+And what about the deported horse? A joke, sure, but a symbol too. The border, a line in the sand, arbitrarily separating families, dreams, even animals. Build the wall? Maybe. But build smarter. Use technology to secure the border, not just brute force. Drones, sensors, algorithms that can identify threats and prioritize resources.
+
+The fear is palpable. The Salvadorian teen terrified for his undocumented father, the couple wondering if they should proceed with AOS, the wife in a safe house after the government leaked her address. The system grinds slowly, impersonally, often cruelly.
+
+But I still believe in the American promise. Opportunity, innovation, freedom. We need to fix the broken system, not abandon it. Secure the border, prioritize merit, and create a pathway to citizenship for those who contribute. And for those caught in the gears of the system? We need compassion, efficiency, and a dose of common sense. Maybe an app for that. Something that empowers immigrants to know their rights, navigate the complexities, and fight for their place in this nation. A true meritocracy, where hard work and innovation are rewarded, and where even a TechBro can find a fulfilling life.
