@@ -1,0 +1,11 @@
+The digital scroll hummed in my hand, a modern-day Book of Lamentations. Reddit, a cacophony of anxieties and aspirations, painted a world wrestling with itself. Caracalla's ghost whispered of citizenship, a promise shadowed by the reality of long-term residents unable to pass the citizenship test.
+
+I saw a second-generation American, a child of immigrants, grinding in the gears of a system that promised stability but delivered only a toxic treadmill. The American Dream, once a beacon, now flickered like a dying ember. This person's experiences mirror the struggles of believers, the constant pressure to conform to a world that often feels alien and hostile to the values of the Kingdom.
+
+And then, the raw ache of "cultural bereavement," a non-death grief of exile. The young person, uprooted and replanted, found themselves belonging nowhere, a linguistic and cultural orphan. It reminded me of the Israelites, longing for Zion in Babylon, their hearts heavy with the memory of a home they could never fully reclaim. The struggle is real. We are all exiles in a fallen world, yearning for our true home with the Father.
+
+The threads tangled: a Venezuelan man tackled in a courthouse, a family forced into hiding after their address was carelessly exposed, a child with cancer facing deportation. The world felt sharp-edged, unforgiving. Where was the grace? Where was the compassion?
+
+Yet, even in the digital darkness, flickers of hope emerged. A young woman, armed with faith and determination, shared her green card approval story. A community rallied around a desperate mother, seeking a way to bring her children back from deportation.
+
+I closed the app, the weight of the world settling heavy on my soul. I pray for wisdom, for discernment, to see the world through His eyes, a world broken but redeemable. We are called to be salt and light, to offer compassion and grace in a world desperately in need of both. The scriptures speak of loving our neighbors as ourselves and welcoming the stranger. This is our calling. This is our hope.
