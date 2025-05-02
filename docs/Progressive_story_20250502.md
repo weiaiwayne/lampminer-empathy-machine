@@ -1,0 +1,11 @@
+The map pulsed red. Not a comforting, festive red, but the arterial, angry crimson of a wound refusing to heal. Each pinprick marked a pact, a betrayal, a handshake between local law and the insatiable maw of ICE. I stared at the screen, the map a stark reminder that justice wasn't blind, it was geographically selective.
+
+My fingers hovered over the keyboard, ready to draft another email, another plea for pro bono representation. How many families were ripped apart by this web of agreements? How many children, like the ones in New Orleans, were being ripped from their homes, their citizenship meaningless against the blunt force of deportation? The story of the 4-year-old with cancer haunted me.
+
+I thought of my neighbor, Mrs. Rodriguez, her hands gnarled from years of cleaning houses, her face etched with a quiet strength. She'd lived here for decades, raised three kids who served in the military, paid her taxes. But she still flinched at the sight of flashing lights, her undocumented status a Damocles sword hanging precariously above her head. Was she on that map? Was her small town another red dot, another place where her fear was justified?
+
+Then there was the second-generation kid, South Asian heritage, grinding away in a tech job, facing discrimination from people who didn't even bother to see them as American. What kind of welcome was that? Is this the American dream we promote to the world?
+
+I scrolled through the posts, a chorus of anxieties echoing my own. Expired passports, denied visas, bureaucratic nightmares. The desperation was palpable, a low hum vibrating beneath the surface of the internet. It was in the mother terrified of deportation, the student trapped by a revoked visa. Each story a testament to the precariousness of belonging, the fragility of hope.
+
+I closed the laptop, the red map still burned into my retinas. The fight felt Sisyphean, but I couldn't stop pushing. The world needed more than maps of fear. It needed bridges of empathy, and allies willing to dismantle the systems that kept people trapped in the shadows. The only way to get it was to keep fighting.
