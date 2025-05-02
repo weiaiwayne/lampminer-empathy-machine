@@ -1,0 +1,11 @@
+The flickering screen cast shadows on my worn Bible, the Reddit threads a chaotic chorus in my mind. Caracalla's edict, a distant echo of universal citizenship, mingled with the modern anxieties of H1B visas and green card delays. A young Salvadoran's fear for his father, the cross tattoo a potential mark of Cain in a world gone mad, resonated deep within me.
+
+I closed my eyes, picturing Jennifer Vasquez Sura, forced into hiding after the government carelessly exposed her address. What kind of shepherd would leave his flock vulnerable like that? The scriptures spoke of welcoming the stranger, of providing refuge, yet here we were, building walls of bureaucracy and fear, deporting children with cancer.
+
+My heart ached for the Cuban woman, a citizen of fifty years, tormented by the thought of deportation, her mind poisoned by the digital whispers of fear. How could I, a fellow believer, offer her solace? I thought of Paul's words: "God has not given us a spirit of fear, but of power and love and self-discipline." (2 Timothy 1:7)
+
+But what power did I have against the machinery of government, against the rising tide of xenophobia? I felt a pang of guilt, my own comfortable life a stark contrast to the precarity of so many others. Was I doing enough? Praying enough? Living out the Gospel's call to justice?
+
+The second-generation American, burdened by the grind, echoed in my thoughts. Was the American Dream just another gilded cage, promising fulfillment but delivering only disillusionment? Where was the shalom, the wholeness, in a system that seemed to prioritize profit over people?
+
+I opened my Bible again, seeking guidance in the Psalms. "The Lord is a refuge for the oppressed, a stronghold in times of trouble." (Psalm 9:9) It was a reminder that even in the face of seemingly insurmountable odds, God's grace remained. My task, then, was not to succumb to despair, but to be a beacon of hope, a voice for the voiceless, a hand extended in compassion. To build, within my own small sphere of influence, a kingdom of love and justice, a testament to the enduring power of faith.
