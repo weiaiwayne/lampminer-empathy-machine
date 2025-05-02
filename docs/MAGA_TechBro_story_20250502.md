@@ -1,0 +1,11 @@
+The flickering screen cast a pale light across my face as I scrolled through the digital detritus of the day. Deported children with cancer, families torn asunder, the endless bureaucratic Kafkaesque nightmare that is the American immigration system. Even the horses aren’t safe, apparently.
+
+This isn't the land of opportunity, it's a goddamn administrative maze designed to bleed you dry. I see the desperation in the posts – the pleas for help, the fears whispered in broken English, the gnawing anxiety of just trying to *live*. I read of a woman forced into a safe house because the government, in its infinite wisdom, publicized her address. What kind of a system weaponizes vulnerability like that?
+
+And then there’s the other side of the coin: the second-generation immigrant, grinding away in a toxic tech job, working 60-hour weeks, discriminated against because of how he looks. He’s living the "American Dream," alright – a dream deferred, diluted, and ultimately, disappointing.
+
+It's a system rigged against aspiration, against the very ideals it claims to uphold. The threads of American exceptionalism are fraying, revealing the ugly, self-serving machine beneath. We preach freedom and opportunity, but we build walls and demand fealty. We celebrate innovation while stifling the very people who fuel it, those who claw their way here seeking a better life, only to be met with a gauntlet of red tape and suspicion.
+
+The Caracalla post…it's a joke. Rome fell. It wasn't just barbarians at the gate, it was rot from within, a bloated bureaucracy, and a citizenry that had forgotten the values that built the empire. Are we any different?
+
+I lean back in my chair, the glow of the screen reflecting in my cynical eyes. The answer is too damn clear. We need to rip this system down and rebuild it, brick by goddamn brick. We need to remember what made this country great in the first place: freedom, opportunity, and a level playing field. Not for some, but for all. Until then, we're just another crumbling empire, destined for the dustbin of history.
