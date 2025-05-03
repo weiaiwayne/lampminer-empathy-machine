@@ -1,0 +1,9 @@
+The flickering screen illuminated Sarah's face, a blend of weariness and determination etched in her brow. Another Reddit thread scrolled past: "NOLA ICE deports 4 y.o. US citizen with CANCER." Her heart clenched. This wasn't just policy; it was a child, an innocent life caught in the gears of a broken system.
+
+She sighed, the weight of the world pressing down. It felt like a constant barrage – stories of families torn apart, dreams deferred, and the creeping fear that even a lifetime of building a life here could be undone by a stroke of a pen. The second-generation American's story resonated; the relentless pressure to succeed, the insidious discrimination lurking beneath the surface of the "American Dream."
+
+But amidst the anxiety, a flicker of hope remained, fueled by her faith. The Apostle Paul tells us in Romans 12:12, "Be joyful in hope, patient in affliction, faithful in prayer." This wasn't blind optimism, but a steadfast belief in God's sovereignty, even in the face of injustice. She had to remember Caracalla's edict, a flawed attempt at unity, but a reminder that policies, like empires, rise and fall. God's kingdom, however, is eternal.
+
+Sarah closed her laptop and reached for her Bible. The words of Micah 6:8 echoed in her mind: "He has shown you, O mortal, what is good. And what does the Lord require of you? To act justly and to love mercy and to walk humbly with your God." This was her calling, not to despair, but to act. To pray for those caught in the system, to advocate for just policies, to offer compassion to the immigrant family at church struggling to navigate the complexities of their green card application.
+
+The fight was long, the road arduous. But with God's grace, and a heart anchored in His truth, she would continue to strive for a world where justice and mercy reigned, where every soul, regardless of their origin, could find a home and a hope, grounded in the unwavering love of the Creator.
