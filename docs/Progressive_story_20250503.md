@@ -1,0 +1,9 @@
+The flickering screen illuminated Elias's face, another Reddit thread fading into the digital ether. He sighed, the blue light reflecting in his tired eyes. He had hoped to learn something new but instead he was left with the same sense of disquiet.
+
+He thought of the young Salvadorian kid, terrified for his father, haunted by the specter of Cecot, a prison embodying the brutal efficiency of a broken system. Then there was the second-generation American, adrift in the very dream his parents chased, finding only toxic work environments and the sting of casual discrimination. It was all a tapestry of anxieties, woven with threads of deportation, visa denials, and the ever-present fear of being othered.
+
+Elias remembered his own grandmother, a Cuban exile who never fully shook the fear of being sent back to a country that no longer existed for her. He understood her paranoia, saw it mirrored in the frantic posts of green card holders, terrified of a misstep that could unravel their lives.
+
+He saw that the Edict of Caracalla, meant to unify, had its modern echoes in the tangled mess of immigration policies. Citizenship, a promise of belonging, was weaponized, a privilege dangled just out of reach for so many. It was a system that valued productivity over humanity, demanding relentless "grinding" while offering little in return.
+
+He slammed his laptop shut. He couldn't just passively absorb this anymore. He needed to do something, anything, to push back against the rising tide of injustice. He thought of all those stories, the deported children, the families torn apart, the constant gnawing fear. He would go to the next protest, write to his representatives, and learn how to help those navigate the labyrinthine legal system. He was no longer a spectator but a participant. He may not be able to fix it all, but he could be a voice, a hand reaching out in the digital darkness, a reminder that they were not alone.
