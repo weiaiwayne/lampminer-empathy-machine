@@ -1,0 +1,9 @@
+The flickering neon sign of the laundromat cast a sickly green glow on Maria’s face. She folded the last of her son’s soccer jerseys, the faded colors a stark reminder of a life that felt increasingly distant. News reports scrolled on her phone – ICE raids, deportations, families ripped apart. It was a constant, low-grade hum of anxiety that vibrated through her bones.
+
+Her mother-in-law, Elena, a whirlwind of toxic energy, was the source of much of Maria’s fear. Elena, undocumented and volatile, had a history of manipulation and abuse. She’d already gotten Maria’s father-in-law deported with a false police report, now she was threatening Maria and her wife. Maria had heard whispers of ICE targeting even those without criminal records, and Elena, with her history of violence and instability, was a walking target.
+
+But Maria also felt a pang of guilt. Deportation felt like a brutal, disproportionate punishment for someone who, despite her flaws, was still a human being. And what about Elena’s grandchildren, Maria’s children? They deserved a stable, loving home, free from the chaos Elena wrought.
+
+The laundromat door chimed, and a young woman with tired eyes walked in, clutching a worn backpack. Maria recognized the vacant stare, the telltale sign of someone navigating the labyrinthine immigration system. Another soul caught in the crosshairs.
+
+Maria sighed, the weight of the world pressing down on her. Caracalla’s edict, that ancient promise of citizenship, felt like a cruel joke in this America. The promise of belonging, of safety, seemed further away than ever. She picked up her laundry basket, the plastic digging into her palms. Justice, equity, reform… they were just words, empty promises echoing in the sterile hum of the machines. She had to protect her family, even if it meant making impossible choices. The question was, what was the right thing to do?
