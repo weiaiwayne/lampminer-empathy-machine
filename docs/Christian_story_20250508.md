@@ -1,0 +1,11 @@
+The flickering screen cast long shadows across my worn Bible. Reddit glowed with tales of hope and despair, dreams deferred and opportunities seized, all swirling in the digital ether. Caracalla's edict, a Roman echo, reverberated in modern debates about immigration. A young South Asian American, born into the promise, found the American Dream tarnished by toxic work, discrimination, and the relentless grind. It felt like a broken covenant, a promise unfulfilled.
+
+Then came the stories of migration's grief, a deep ache for a lost home, a culture severed. A child ripped from American soil, replanted in a foreign land, forever searching for a language, a belonging, that felt both real and fake. It was a poignant reminder of the cost of displacement, the invisible wounds carried across borders.
+
+My heart ached for the young Salvadorian, terrified of Trump and Bukele's iron fists, his father's cross tattoo a mark of potential persecution. Fear, a constant companion in these digital narratives, whispered of families torn apart, of dreams deferred, of a system seemingly indifferent to individual stories.
+
+Yet, amidst the darkness, flickered embers of hope. The couple navigating the asylum process, the student pursuing education, the family seeking cancer treatment in a land that might deport them. These stories, these human dramas, played out against a backdrop of bureaucratic complexity, legal loopholes, and political anxieties.
+
+The words of the Apostle Paul rang in my ears: "We are afflicted in every way, but not crushed; perplexed, but not driven to despair; persecuted, but not forsaken; struck down, but not destroyed." (2 Corinthians 4:8-9).
+
+The world, as presented by Reddit, was a tapestry woven with threads of both grace and judgment. It was a world where ancient policies echoed in modern struggles, where dreams clashed with harsh realities, and where the promise of welcome was often overshadowed by the fear of exclusion. My calling, as a Christian, was to discern the hand of God in the midst of this chaos, to offer compassion, and to advocate for justice, remembering that every face reflected the image of God, regardless of their passport or their past.
