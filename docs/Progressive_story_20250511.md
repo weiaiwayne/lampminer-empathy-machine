@@ -1,0 +1,11 @@
+The air in the laundromat hung thick with the scent of detergent and quiet desperation. Another cycle churned, another week bled into the next. Maria folded towels, her calloused fingers smoothing the worn fabric. She was a green card holder, a whisper away from citizenship, but the fear gnawed at her. Every siren, every news headline about deportations, amplified the anxiety that pulsed beneath her skin.
+
+Her daughter, Sofia, tapped furiously on her phone, scrolling through Reddit threads on immigration law. The blue light illuminated her face, a youthful mask of concern. "Mom, this thread says they're sending people back even with pending medical cases. You know, that family in New Orleans…"
+
+Maria flinched. Sofia, born here, a citizen, carried the weight of her mother's uncertainty. The weight of being a bridge between two worlds, a translator of anxieties. It wasn't the American dream they’d envisioned, not quite. The promise of opportunity felt tainted by the ever-present threat of separation.
+
+A young man with tired eyes sat nearby, hunched over his laptop. He was a student, a future engineer perhaps, navigating the labyrinthine pathways of OPT extensions and visa applications. He caught Sofia’s eye, a flicker of shared understanding passing between them. They were all cogs in a system grinding relentlessly, chasing a stability that seemed perpetually out of reach.
+
+Maria sighed, folding a tiny, faded t-shirt. It belonged to her grandson, a rambunctious ball of energy who dreamed of becoming an astronaut. He was the embodiment of hope, a testament to their resilience. But the weight of protecting him, of ensuring his future wasn't jeopardized by the bureaucratic nightmares they faced, was a heavy burden.
+
+She looked at Sofia, her daughter's face etched with worry. "We keep fighting, mija," she said, her voice firm despite the tremor in her hands. "We fight for him. We fight for all of us." The laundromat door opened, letting in a gust of wind and the distant sound of police sirens. The air grew colder, but Maria held her ground, folding the towels, one by one, building a small fortress of hope against the rising tide of fear.
