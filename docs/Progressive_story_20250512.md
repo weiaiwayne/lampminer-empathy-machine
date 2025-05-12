@@ -1,0 +1,11 @@
+The chipped mug warmed my hands, the lukewarm coffee doing little to soothe the knot in my stomach. Reddit glowed on my laptop screen, a kaleidoscope of anxieties and fleeting hopes. The digital town square, where whispers of Caracalla’s edict mingled with desperate pleas for immigration lawyers and anxieties over misspelled middle names.
+
+A second-generation South Asian American’s story resonated. The promise of the “American Dream” dangled like a mirage, replaced by the harsh reality of a saturated job market, toxic work environments, and the sting of casual racism. Even with degrees and ambition, the treadmill of job-hopping, fueled by the insatiable demands of a capitalist machine, seemed inescapable.
+
+Then, the ache of migratory grief. A young person, ripped from their childhood in the US and thrust back into a “third world” existence, struggling with the ghost of a life that felt both real and fake. The yearning for a place that felt like home, a language that flowed effortlessly, a connection to a culture that wasn't a constant performance.
+
+The news of a four-year-old US citizen with cancer deported from NOLA, a chilling example of systemic cruelty, hit hard. How could a nation built on ideals of justice and compassion inflict such suffering? The story of the wrongly deported Maryland man, his wife forced into hiding, amplified the sense of injustice. The government, meant to protect, instead weaponizing personal information and fueling fear.
+
+And then the whispers of Trump’s potential return, the chilling prospect of mass deportations, the quiet terror of a Salvadorian mechanic with a cross tattoo, fearing Cecot. The desperation to find a lawyer, the fear of being separated from loved ones, the gnawing uncertainty about the future.
+
+The world, as illuminated by Reddit, was a place of precariousness and relentless striving. A system where even citizenship offered no guarantee of belonging, where the pursuit of happiness often led to burnout and disillusionment, and where the threat of arbitrary power always loomed. The weight of it all settled heavy, a reminder that the fight for justice and equity was far from over, that empathy and action were more crucial than ever.
