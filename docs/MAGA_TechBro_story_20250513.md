@@ -1,0 +1,11 @@
+The flickering neon sign of "Liberty Loans - Tax Prep" buzzed outside my window, a constant reminder of the grift. Another day, another Reddit rabbit hole. White South Africans seeking refuge? Deported children with cancer? It's a goddamn circus of virtue signaling and broken systems.
+
+I sipped my black coffee, the bitter brew a necessary jolt against the creeping nihilism. The second-generation immigrant, slaving away in tech, feeling the sting of discrimination despite speaking perfect English. He's caught in the crossfire, a pawn in this global chess game. Just like those H1B visa holders, clinging to their tenuous existence, praying their PERM gets approved before the guillotine of a layoff falls.
+
+Caracalla's edict... citizenship for all. What a load of horseshit. Rome crumbled under the weight of its own bloated bureaucracy and unsustainable promises. Are we any different? We dangle the American Dream, a shimmering mirage in the desert, while simultaneously building higher walls and stricter gatekeepers.
+
+I scrolled past another sob story about a wrongfully deported father, ripped away from his family. The comments section was a war zone: bleeding hearts versus "build the wall" zealots. Nobody seemed to grasp the nuance, the crushing weight of individual lives caught in the gears of political machinery.
+
+The algorithm, of course, knew my biases. It spoon-fed me articles about Trump's plan to prioritize Afrikaner refugees, a move that reeked of blatant favoritism. It's all a game of optics, a cynical attempt to shore up support among a certain demographic.
+
+I slammed my laptop shut. Enough. The digital echo chamber was suffocating. I needed fresh air, a dose of reality untainted by the curated outrage of social media. I grabbed my keys, determined to find something, anything, to believe in again. Maybe a drive to the coast, a glimpse of that vast, indifferent ocean, would offer some perspective. Or maybe, just maybe, a decent burger at that hole-in-the-wall diner downtown. Small victories, that's all we can hope for these days.
