@@ -1,0 +1,11 @@
+The flickering neon sign of the laundromat cast a sickly green glow on Maria's face as she folded her son's small t-shirts. Each crease was a silent prayer for a life he wouldn't have to flee. Tonight, the Reddit threads were a cacophony of anxieties. A green card holder stranded, a family ripped apart by a deportation order, a creeping dread that even a decades-long citizenship could be fragile. The whispers of Trump's renewed promises hung heavy in the digital air.
+
+Maria scrolled past a thread about white South Africans being welcomed as refugees, a bitter taste rising in her throat. Where was the compassion for the brown and Black bodies desperately seeking sanctuary from violence and poverty? It felt like a perverse inversion of justice, a stark reminder of who America was truly built for.
+
+A notification popped up: a plea for help finding a pro bono lawyer for an asylum case. Maria felt a pang of guilt. She wanted to help, but she was barely keeping her head above water. The laundromat's hum was a constant reminder of the endless cycle of work, worry, and just barely surviving.
+
+She thought of her own journey, the sacrifices her parents made, the constant fear that shadowed their lives. Had they known the current climate, would they still have chosen this country? The question gnawed at her.
+
+Suddenly, the laundromat door swung open, and a gust of wind rattled the windows. A young woman rushed in, her eyes wide with panic. "ICE," she gasped, clutching a worn backpack. Maria instinctively pulled her son closer, a protective instinct flaring. The woman's fear was a tangible thing, a mirror reflecting the collective anxieties of an entire community.
+
+Maria looked at her son, his innocent eyes reflecting the neon glow. She knew she had to fight, not just for her own family, but for this woman, for all those who deserved a chance at a life free from fear. The fight for justice, for equity, for a truly welcoming America, was far from over. And Maria, armed with her worn hands and a fierce love for her son, was ready to keep fighting.
