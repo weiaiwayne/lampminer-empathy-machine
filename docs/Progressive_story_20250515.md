@@ -1,0 +1,11 @@
+Rain lashed against the window of my tiny, rent-controlled Brooklyn apartment, mirroring the tempest in my mind. I scrolled through Reddit, the digital echo chamber of my generation. Deported horses, families torn apart at the border, and the creeping dread of authoritarianism. It felt like the world was fracturing, the cracks widening with each passing news cycle.
+
+My parents, bless their optimistic immigrant hearts, still clung to the American Dream. They worked tirelessly, believing in the promise of upward mobility. But I see the reality. The second-generation experience: straddling two cultures, feeling neither fully accepted nor entirely at home. The sacrifices they made, the racism they endured, and for what? A system rigged against us, where even a green card offers no real security.
+
+I read about the young woman in Texas, her father wrongly deported, her mother living in fear. I thought of my own parents, their accents, their unwavering belief in a system that might one day betray them. The anger simmered, a slow burn beneath my skin.
+
+Then, another thread: a South African Afrikaner family granted refugee status. While families fleeing violence in Central America are turned away, *they* are welcomed with open arms. The blatant hypocrisy stung. It was a stark reminder that justice is blind, but only to the suffering of some.
+
+But amidst the despair, a spark of hope flickered. A post about a community organizing to help immigrants navigate the complex legal system. A reminder that even in the darkest of times, solidarity can be a lifeline. We may not be able to fix the system overnight, but we can fight for each other, offer support, and amplify the voices of those who are silenced.
+
+I closed my laptop, the rain still drumming against the glass. The world felt overwhelming, but I wasn't powerless. I had a voice, a platform, and a responsibility to use them. It was time to get to work. The fight for justice, for equity, and for a more humane world was just beginning.
