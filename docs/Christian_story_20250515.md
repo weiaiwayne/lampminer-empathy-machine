@@ -1,0 +1,11 @@
+The flickering screen cast a pale light across my face, the endless scroll of Reddit threads a digital tapestry of anxieties and hopes. Caracalla's edict, green card delays, deportation fears – it all swirled together, a modern Tower of Babel built on anxieties of belonging.
+
+I thought of that second-generation American, caught between the promise and the reality, grinding away in a toxic tech job, facing subtle bigotry. His experience echoed the ancient anxieties of integration, the push and pull between assimilation and preserving one's heritage. I prayed he would find rest in God's grace.
+
+Then there was the au pair, venturing across borders, navigating visa mazes, a modern-day sojourner seeking opportunity. And the woman in a safe house, terrified after the government carelessly published her address. These were not mere news items; these were lives, precious souls grappling with the uncertainties of a world where borders seemed both porous and insurmountable.
+
+The image of federal agents tackling a Venezuelan man in a courthouse flashed in my mind. Was this justice? Was this the compassion Christ called us to? The question gnawed at me. The scriptures reminded me to seek justice and defend the oppressed, but how to do that in a world so fractured and polarized?
+
+The sheer volume of information was overwhelming. The deported horse, the deported child with cancer, the green card holder terrified of leaving the country – each story a tiny ember of injustice burning in the darkness. I longed for clarity, for a way to filter out the noise and focus on what truly mattered: loving my neighbor, advocating for the vulnerable, and upholding God's truth in a world desperately in need of both.
+
+Closing the laptop, I knew I couldn't passively consume these stories. I had to act. Perhaps it was writing a letter to my representatives, volunteering at a local immigrant center, or simply offering a listening ear to someone struggling with the weight of their immigration status. Small acts of faith, seeds planted in the fertile ground of hope. For even in the face of such uncertainty, I clung to the promise that God's kingdom would prevail, a kingdom where every nation, tribe, and tongue would find welcome and belonging.
