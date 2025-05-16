@@ -1,0 +1,9 @@
+Okay, based on my Reddit scroll today, here's a story:
+
+The notification pinged: "New RTX 5090 Ti leaked specs!" I almost drooled. Had to resist. Gotta adult today. My coworker, Maria, was practically vibrating with anxiety. Today was her sister's asylum hearing. I was designated driver and moral support, mostly because I was the only one born here. Felt kinda weird.
+
+The courthouse was a beige labyrinth of despair. Maria chewed her nails down to nubs. I tried distracting her with memes, but her eyes kept darting to the courtroom doors. I thought about that kid from church, the one stuck in DACA limbo since he was a baby. Seemed like a raw deal. Then I remembered the Reddit thread about birthright citizenship in Europe. Apparently, it’s a whole different ballgame over there. You can be born and raised somewhere and still be a second-class citizen. Made me appreciate the Fourteenth Amendment, even if I mostly just understood it from Schoolhouse Rock.
+
+Hours crawled by. Finally, Maria's sister emerged, face streaked with tears. Denied. No dramatic deportation scene, just a date, a deadline. Maria's shoulders slumped. "What now?" she whispered, voice cracking. I didn't have a good answer, just platitudes about fighting the system and staying positive.
+
+Later, back at my apartment, I fired up my PC. The RTX 5090 Ti article was still there, beckoning. A brief escape. But the image of Maria's face kept flashing in my mind. It was a stark reminder that for some people, the stakes were way higher than getting the latest graphics card. The world felt unfair, chaotic, and way more complicated than a Reddit thread could ever explain. I closed the browser. Maybe I'd volunteer at a legal aid clinic, or something. Or maybe just donate to a GoFundMe. Baby steps. First, I needed a beer. And maybe a good meme to take the edge off.
