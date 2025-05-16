@@ -1,0 +1,9 @@
+The chipped ceramic mug warmed my hands as I sat on the porch, the Virginia sun painting the morning sky in hues of apricot and rose. I was thinking about young Mateo, the boy in my church, caught in the limbo of a DACA application that seemed to stretch on for eternity. He was brought here as an infant, no more guilty of breaking laws than Samuel was when his mother carried him across the Red Sea.
+
+The Reddit threads swam in my mind, a cacophony of anxieties and legal jargon. H1B visas morphing into F-2s, the lottery of dreams, the crushing weight of a denied F1 visa even with a full scholarship. The fear in those digital voices was palpable, a reflection of the fear I saw in Mateo’s mother’s eyes every Sunday.
+
+Europe, they say, has learned the dangers of birthright citizenship. But what dangers are those compared to the dangers of raising a generation in the shadows, of denying a soul the right to belong, to contribute, to be a child of God in the land where they grew up? The 14th Amendment, a beacon in the darkness, feels like a fragile thing these days, easily chipped away by fear and prejudice.
+
+I thought of the young woman I’d be accompanying to her asylum hearing on Monday. Fleeing horrors I could barely imagine, seeking refuge in a land that promised liberty. And then, the cold reality of courtrooms, of legal battles fought with words and documents, where a single misstep could mean deportation, a return to the very thing she was running from.
+
+Lord, guide my words, I prayed, as I would be her advocate. Give me the wisdom to navigate the labyrinth of legalities, the compassion to ease her fear. And give me the strength to remember that behind every application, every visa, every legal hurdle, there is a human being, created in Your image, deserving of dignity and grace. The coffee had gone cold, but the sun was higher now, casting a warm glow. My work had just begun.
