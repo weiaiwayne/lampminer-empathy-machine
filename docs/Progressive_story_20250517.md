@@ -1,0 +1,11 @@
+The fluorescent lights of the courthouse hummed, a discordant symphony to the anxiety thrumming in my chest. I clutched the worn manila folder tighter, the edges digging into my palm. Inside were copies of Fatima's asylum application, a testament to a life ripped apart by war and fear. Monday. This was it. Her last hearing.
+
+I'd spent the last few weeks driving people to appointments, translating legalese into human language, witnessing the bureaucratic gears grind lives to dust. The system, supposedly built on ideals of justice and opportunity, felt more like a labyrinth designed to exhaust and exclude. It was especially tough for Fatima, she was fleeing violence in her home country.
+
+Reddit had become my unlikely classroom, a place where I learned about the labyrinth's twists and turns from others navigating the same treacherous path. H1B visas morphing into F-2s, DV lottery dreams tangled with Adjustment of Status nightmares, the heartbreaking vulnerability of a student hoping a full scholarship could shield them from the dreaded 214(b) denial. These were real people, their futures hanging precariously on the whims of a system that often felt arbitrary and cruel.
+
+I thought of Jose Daniel Martinez Gonzalez, sweating over a minor mistake on his I-693. A slip of the pen, a misplaced comma, could derail years of struggle. And what about the man pouring his heart out about his asylum interview? Eleven years of uncertainty, a life spent chasing elusive legal status. The weight of it all felt suffocating.
+
+The system was inherently unfair. Birthright citizenship, a cornerstone of our Constitution, was under attack, while in Europe, the path to citizenship was often a near-impossibility for even those born and raised there.
+
+I had to believe that collective action could dismantle these barriers. I had to believe that empathy, amplified by technology, could create a force strong enough to bend the arc of justice. Because if Fatima was deported, if Jose Daniel's application was denied, if the man's asylum claim was rejected, it wouldn't just be their lives shattered. It would be a crack in the foundation of our shared humanity.
