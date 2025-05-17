@@ -1,0 +1,11 @@
+The fluorescent hum of the church basement was a constant, a low drone that vibrated in my teeth. Tonight was ESL night, and the air hung thick with the scent of instant coffee and hesitant English. I watched Maria, her face etched with a familiar worry, carefully pronounce "opportunity" for the tenth time, her son, Miguel, drawing silent pictures of airplanes on a scrap of paper.
+
+Maria's asylum hearing was Monday. I was driving her. She’d told me, her voice barely a whisper, about the violence she fled, the shadows she still saw in her dreams. I gripped my Bible tighter, the worn leather a comfort against the anxieties that gnawed at me. The world outside felt like a churning sea of paperwork, of bureaucratic hurdles deliberately placed to trip up the weary traveler.
+
+Across the room, Dimitri, a software engineer from Ukraine, was explaining the intricacies of L-1 visas to Pastor Johnson. Dimitri’s face shone with a desperate hope, the same hope I saw flickering in Maria's eyes, in the stories on Reddit – the student with the scholarship, the family separated by a dead petitioner, the man lost in the labyrinth of immigration, his life slipping away.
+
+These weren't just cases; they were people. Children of God, each bearing a spark of the divine. And yet, the system seemed designed to grind them down, to reduce them to numbers, to deny their inherent worth.
+
+Later, as I drove home, the city lights blurring through the rain-streaked windshield, I wrestled with the question that always lingered: Where was God in all this? Was His hand guiding the invisible gears of bureaucracy, or was He weeping alongside the forgotten, the marginalized, the ones caught in the crossfire of a broken world?
+
+The answer, I knew, wasn't simple. It wasn't a pat verse or a neatly packaged theological argument. It was in the quiet acts of service, in the shared hope, in the unwavering belief that even in the darkest of nights, a glimmer of grace could still break through. It was in driving Maria to her hearing, in helping Dimitri navigate the complexities of the legal system, in offering a cup of coffee and a listening ear to those who felt lost and alone. It was in reflecting the love of Christ, one small act at a time. That was all I could do. That was all I *had* to do.
