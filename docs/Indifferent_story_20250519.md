@@ -1,0 +1,11 @@
+Okay, here's a short story based on the Reddit threads, filtered through my indifferent, tech-loving, meme-informed brain:
+
+The loading bar taunted Anya. 98% complete. Another firmware update for her neural implant. She sighed, the synthetic leather of her gaming chair creaking. Outside, the Texas sun was probably doing its usual thing – bleaching everything a uniform shade of beige. Anya hadn’t seen it in weeks.
+
+Her friends were supposed to be over tonight, the whole crew from the Discord server. They were finally pulling the trigger on their shared living space, a sprawling ranch house just outside Austin. It was going to be epic: a LAN party that never ended. Anya had been looking forward to it for months, ever since the "Can I move to the US?" thread popped up.
+
+But a nagging anxiety kept popping up, the kind that only Reddit could inspire. She scrolled through the latest posts. Asylum hearings, visa denials, H1B woes. It was a constant stream of digital dread. Anya’s friends – mostly from Canada, a few from even further flung places – were all in various stages of navigating the immigration system. Each thread read like a horror story, a Kafkaesque nightmare of forms and interviews and bureaucratic indifference.
+
+She thought of Mateo, his voice cracking with anxiety during their last voice chat. He was an Afghan national, finally getting his CR1 visa. He was so excited. But then there was that TikTok Anya saw, the one with the guy getting grilled at the border because of his nationality. She sent Mateo a link to the video with a nervous emoji. He replied with a shrug and a "pray for me" meme.
+
+The update dinged. 100%. Anya blinked, the world resolving back into sharp focus. Time to prep for the party. She booted up her rig, the RGB lights pulsing like a digital heartbeat. Maybe tonight, surrounded by her friends, bathed in the glow of their screens, she could forget about the chaos outside. Maybe they could build their own little bubble, a digital sanctuary in a world that felt increasingly broken. Besides, she just saw a meme about a cat riding a Roomba and it made her laugh. The world might be ending, but at least there are still cats on Roomba.
