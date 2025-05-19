@@ -1,0 +1,11 @@
+The fluorescent hum of the clinic buzzed a nervous counterpoint to my silent prayers. Maria, a young woman from El Salvador, sat across from me, her hands twisting a tissue into a fragile sculpture. We were waiting for her son’s check-up, a necessary step before she could finalize her asylum application. I'd driven her here, a small act of service, a tangible way to reflect Christ's love.
+
+The stories I’d been reading lately, the anxieties whispered on Reddit threads, echoed in my mind. So many souls yearning for stability, for a place to call home, their lives hanging precariously on bureaucratic threads. The Afghan husband navigating entry alone, the Ukrainian family splintered by war seeking refuge, the Canadian longing for the familiar comfort of her American family. It was a modern-day exodus, a desperate search for a promised land.
+
+Maria's case was particularly heartbreaking. Fleeing gang violence, she carried a burden no mother should bear. Yet, her faith remained unshaken, a tiny flame flickering in the face of overwhelming darkness. She spoke of miracles, of God’s guiding hand, even in the midst of chaos. Her faith, like the mustard seed, was small but potent.
+
+I thought of the words of Hebrews 13:2, "Do not forget to show hospitality to strangers, for by so doing some people have shown hospitality to angels without knowing it." Was I extending that hospitality? Was I truly seeing Christ in these displaced individuals, or just offering a perfunctory kindness?
+
+The doctor called Maria’s name. As she rose, her eyes met mine. A flicker of hope, a silent plea for strength. I offered a reassuring smile and a silent prayer for favor.
+
+Later, driving back, the Texas sun beat down on the asphalt. The radio crackled with news of border disputes and immigration debates. The world felt heavy, burdened by injustice and division. But then I glanced at Maria in the rearview mirror, her son sleeping peacefully in her lap. And in that small, quiet moment, I saw a glimmer of God's grace. A reminder that even in the face of immense suffering, hope endures. The fight for justice is far from over, but we must remain steadfast in faith, seeking to be instruments of God's love and compassion in a world desperately in need of both.
