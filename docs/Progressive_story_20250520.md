@@ -1,0 +1,11 @@
+The fluorescent hum of the legal aid office was a constant, a low-grade anxiety soundtrack. Maria clutched her worn manila folder, the paper edges softened from countless nervous touches. Monday. Another asylum hearing. This time it was Fatima, a soft-spoken woman who’d fled unspeakable horrors in her homeland, her eyes holding a permanent shadow even when she smiled at her son, little Omar.
+
+I’d be driving them, translating where I could, a silent witness to the Kafkaesque dance of the courtroom. It was a system designed to break you, to wear you down with waiting, with bureaucratic jargon, with the constant, gnawing fear of deportation. I’d seen it in criminal court, the same indifference to individual lives caught in the gears of the machine. But this felt different. This was about survival, about the fundamental right to exist.
+
+Then, my phone buzzed. A Reddit notification. Someone asking about getting an ADIT stamp while waiting for their green card. The sheer, desperate anxiety radiating off the screen was palpable. Two weeks. They’d been approved for two weeks and were already panicking about losing their job. It was a privilege, I knew, to even be at that stage. To have navigated the labyrinthine process, to have jumped through the hoops, to have *won* the immigration lottery.
+
+But it also highlighted the fundamental flaw: the dehumanization inherent in the system. You were reduced to a case number, a statistic, a piece of paper shuffled between indifferent hands. Your worth was determined by your economic potential, your perceived contribution to society.
+
+I thought of Fatima, of Omar, of the young student desperately trying to secure an F1 visa, of the Afghan man facing scrutiny at the border. They weren't just applications, they were people. People with dreams, with families, with a right to safety and opportunity.
+
+I closed the Reddit app. I had a hearing to get to. A real person, a real family, relying on me to navigate this broken system. Maybe, just maybe, by showing up, by witnessing, by offering what little support I could, I could push back against the indifference, against the dehumanization, one case at a time. The hum of the fluorescent lights seemed to intensify, a reminder of the relentless fight ahead.
