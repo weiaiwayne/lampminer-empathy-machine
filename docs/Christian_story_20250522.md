@@ -1,0 +1,11 @@
+The fluorescent lights of the DMV hummed, a discordant choir to the anxieties churning within me. Sister Agnes, bless her tireless heart, sat beside Maria, a young woman clutching a worn folder bursting with documents. Maria's asylum hearing was today. I gripped my Bible tighter, the leather worn smooth from years of seeking solace within its pages.
+
+Lord, guide them, I prayed silently, my gaze drifting to the faces around us. Faces etched with hope and weariness, a tapestry woven from threads of desperation and dreams. I remembered reading on Reddit about the Kafkaesque nightmare of immigration court, the arbitrary rulings, the lives hanging in the balance. It felt like a modern-day parable, the powerful lording over the vulnerable, a stark contrast to the radical grace Christ offered.
+
+I’d also seen the threads questioning birthright citizenship, the fear of financial collapse fueling a desire to deny the inherent dignity of every human being created in God's image. It was a chilling echo of ancient prejudices, a forgetting that we are all, in some way, immigrants, strangers in a strange land seeking refuge.
+
+Maria’s lawyer, a young man with tired eyes, gave us a curt nod. “Ready?”
+
+We followed him into the sterile courtroom. The air was thick with unspoken tension. I thought of the boy in my church, caught in the limbo of a pending DACA application, his future tethered to a system that seemed designed to break him. And the Ukrainians, fleeing war, seeking solace in a land grappling with its own internal conflicts.
+
+The judge, a woman with an impassive face, began to speak. Maria trembled. I closed my eyes, whispering a prayer for justice, for compassion, for a glimpse of God’s kingdom in this broken world. I prayed that the judge would see Maria not as a case number, but as a daughter of God, deserving of safety and a chance to flourish. I prayed that Maria would see God's providence in whatever outcome, and I prayed that I would have the wisdom and the strength to help her navigate the next chapter of her life.
