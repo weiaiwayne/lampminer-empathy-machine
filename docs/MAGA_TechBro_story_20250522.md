@@ -1,0 +1,11 @@
+The glow of the screen illuminated my face, reflecting the endless scroll of Reddit threads. Another H1B hopeful, another asylum seeker, another plea for help navigating the labyrinthine system. It's a damn mess, a bureaucratic swamp designed to drown the ambitious and reward the... well, not the deserving, that's for sure.
+
+I slammed my laptop shut, the sudden darkness a welcome relief. Outside, the Texas sun beat down, a reminder of the opportunities this land still offers, even if they're increasingly gatekept. I thought about that Canadian wanting to move down here, escaping Trudeau's woke dystopia. Good for him. Texas could use more freedom-loving folks.
+
+But these threads... they get under my skin. All these people chasing the American Dream, often through loopholes and backdoors. Don't get me wrong, I believe in a merit-based system. If you've got the skills, the drive, the willingness to contribute, then come on in. But this constant undermining of the system, the endless appeals for asylum based on flimsy claims, the birthright citizenship loophole... it's eroding the very foundation of what made this country great.
+
+I remembered that thread about birthright citizenship. Europe has it right. You shouldn't be able to just pop out a kid on American soil and instantly grant them access to all the benefits, especially when so many are just using it to anchor their families here and leech off the system.
+
+Stephen Miller was right. We need to end birthright citizenship. It's not about hate; it's about survival. It's about preserving the American Dream for those who truly believe in it, who are willing to work for it, and who are committed to upholding the values that made this nation exceptional.
+
+I grabbed my keys, the metal cool in my palm. Time to head to the garage and tinker with my Tesla. Gotta keep innovating, gotta keep building, gotta keep pushing forward. That's the American way. Even if the path is cluttered with obstacles, I'll keep building and doing my part. And maybe, just maybe, we can reclaim this country from the forces trying to tear it down.
