@@ -1,0 +1,9 @@
+The fluorescent hum of the DMV buzzed in my ears, a soundtrack to the bureaucratic purgatory so many find themselves in. Across from me, Maria chewed her lip, her eyes darting between the faded posters of American landmarks and the clock on the wall. She clutched the worn folder containing her asylum application, a document heavy with stories of violence and fear she’d carried across borders. I was there to translate, to be a human buffer against the cold indifference of the system.
+
+It's stories like Maria's that fuel my activism. I think of all the people in the Reddit threads – the Afghan husband navigating a new country alone, the student with a scholarship facing the looming threat of visa denial, the couple desperately trying to prove their marriage is real amidst accusations of fraud. Each one a pixel in the mosaic of immigration, a system I see as fundamentally broken.
+
+We waited. Hours bled together, punctuated by the rhythmic slamming of rubber stamps and the muffled announcements over the loudspeaker. I scrolled through Reddit on my phone, finding a new thread about birthright citizenship. The comments were a toxic sludge of fear and misinformation. It makes my blood boil. How can people be so blind to the reality, that we are a nation of immigrants, and that denying people citizenship based on where they were born is a betrayal of our own ideals?
+
+Finally, Maria's name was called. We walked into the sterile office, the air thick with unspoken tension. As she spoke, her voice trembled, but her eyes held a fierce determination. I translated, carefully choosing my words, trying to convey not just the facts, but the weight of her experience.
+
+When we left, I didn't know what the future held for Maria. But as I drove her home, I felt a renewed sense of purpose. These bureaucratic battles, these individual stories of hope and struggle, are the front lines of the fight for a more just and equitable world. And I'm not backing down.
