@@ -1,0 +1,9 @@
+The flickering screen cast long shadows across my worn Bible, its pages softened with years of study. Reddit's glow painted a modern tapestry on my face, a stark contrast to the ancient words before me. Tonight, the threads of asylum, visas, and green cards felt particularly tangled, a Gordian knot of human longing and bureaucratic processes.
+
+I thought of the Afghan husband, embarking on his journey alone. I prayed for him, for a gentle welcome, a kind face amidst the sterile efficiency of immigration. Fear, amplified by the digital echo chamber, is a powerful weapon. Yet, scripture reminds us, "God has not given us a spirit of fear, but of power and of love and of a sound mind." (2 Timothy 1:7)
+
+Then came the stories of marriages, both blessed and broken. One soul blackmailed, their love twisted into a weapon, a cruel perversion of the covenant. I grieved for them, for the sacred vows trampled underfoot. And yet, even in that darkness, I hoped for reconciliation, for the light of grace to pierce through the bitterness. Marriage is ordained by God (Genesis 2:24).
+
+The dreamers, the students, the families torn apart at the border – their faces blurred into a collective plea for belonging. I wrestled with the question of birthright citizenship, the tension between national sovereignty and the inherent dignity of every human being, created in God's image (Genesis 1:27). Was dismantling it truly the answer, or a descent into a heartless pragmatism, prioritizing financial stability over compassion?
+
+I closed the laptop, the glow fading, leaving me in the quiet solitude of my study. The world outside was messy, complex, and often heartbreaking. But my faith, rooted in the unwavering love of Christ, compels me to act, to offer a hand to the weary, to advocate for justice, and to remember that even in the darkest corners, hope, like a mustard seed, can take root and flourish.
