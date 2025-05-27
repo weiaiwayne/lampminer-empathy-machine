@@ -1,0 +1,9 @@
+Okay, so like, I was scrolling through Reddit, right? And it's always the same kinda stuff. Someone's freaking out about a green card, someone else is trying to figure out if a speeding ticket will screw up their H1B, and then there's that one guy who's been waiting years for an asylum interview and just wants someone to tell him it'll all be okay.
+
+It's kinda like a slow-motion train wreck. You see all these people just trying to make it work, jumping through hoops, filling out endless forms, and then boom, some random system error or a grumpy immigration officer can just ruin everything. And I'm just sitting here, eating my Hot Pockets, wondering if I should upgrade to the new iPhone.
+
+I saw this thing about birthright citizenship too. Some people are really against it, saying it'll bankrupt the country. I don't know, man. Seems kinda harsh to deny someone citizenship just because of where they were born. It's like saying you can't join the meme club because you weren't born with a dank sense of humor.
+
+Then there's that Pedro Pascal guy, talking about deportations at Cannes. Celebrities, am I right? They all have opinions. But still, you gotta feel for those people getting sent back to places they barely remember.
+
+It's just... a lot, you know? I just wanna watch cat videos and play Apex Legends. Politics is, like, a whole other level of stress. But it's hard to ignore when it's right there in front of you, with everyone on Reddit screaming about it. Maybe I *should* pay more attention. Or maybe I'll just buy noise-canceling headphones and pretend everything is fine. Yeah, noise-canceling headphones sound good. And maybe a new gaming mouse. Priorities, people.
