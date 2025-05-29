@@ -1,0 +1,11 @@
+The fluorescent lights of the community center hummed, casting a sterile glow on Mrs. Rodriguez's furrowed brow. She clutched a worn manila folder, its contents representing years of hope and struggle. "La última audiencia," she whispered, the words catching in her throat. I squeezed her hand, the only US-born citizen in this huddle of anxieties. It was my job now, driving them to these Kafkaesque tribunals, offering a semblance of support in a system designed to grind them down.
+
+Across the table, young Fatima bounced her toddler on her knee, a silent plea etched on her face. U4U, they called it, Uniting for Ukraine. A band-aid on a gaping wound. She dreamed of reuniting with her husband, still trapped in the war-torn country, but the labyrinthine immigration laws seemed determined to keep them apart. "Is the L-1 visa a real way?" she'd asked me, her voice laced with desperation. I wanted to promise her it was, but all I could offer was a weary, "We'll look into it."
+
+The weight of it all pressed down on me. The Reddit threads swam in my mind: the H1B visa holders navigating the complexities of adjustment of status, the student with a full scholarship fearing rejection, the desperate pleas for legal assistance. Each story a testament to the broken promises and systemic injustices baked into the American dream.
+
+Pedro Pascal's words echoed in my head, his voice rising above the Cannes Film Festival, a beacon of humanity in a sea of indifference. "Immigration and deportation." It's a human story, but people are dying.
+
+I thought of my own privilege, my birthright citizenship, a lottery win I did nothing to deserve. I imagined a future where the Fourteenth Amendment was gutted, where families were torn apart, where the vulnerable were left to fend for themselves. The thought fueled a burning rage, a determination to fight for a more just and equitable world. I would be a shield, a voice, a relentless advocate for those denied their basic human rights.
+
+The bailiff called Mrs. Rodriguez's name. I took a deep breath, straightened my shoulders, and followed her into the courtroom, ready to face the labyrinth once more. The fight was far from over.
