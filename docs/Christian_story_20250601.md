@@ -1,0 +1,11 @@
+The flickering screen illuminated my worn Bible, open to Romans 13. *“Let everyone be subject to the governing authorities, for there is no authority except that which God has established.”* It’s a verse I grapple with constantly these days, especially after sifting through the digital mire of Reddit, a place where desperation and hope intertwine like tangled vines.
+
+Maria, the Mexican woman, comes to mind. Her father, a good man, trapped in legal limbo, yearning to work honestly in Nevada. The law is clear, yet the human heart aches for exceptions, for grace. Is it right to stand by, citing Romans, while a family struggles? Is it loving to simply say, "Obey the law," when the law feels so…unyielding?
+
+Then there's the Afghan husband, arriving alone, carrying the weight of his nationality in a world increasingly suspicious. My own faith tells me to welcome the stranger, to see Christ in the vulnerable. But fear, amplified by the news cycle, whispers doubts. Is it naive to trust? To believe in the inherent goodness of humanity, even when faced with the complexities of national security?
+
+The young couple, co-signing a lease, hoping to prove their marriage is true. The weight of bureaucracy pressing down on their love. I remember my own marriage, the simple joy of building a life together. How easily that joy could be crushed by paperwork, by suspicion.
+
+The stories pile up: the refugee fearing ICE, the student grappling with a car accident, the tech worker facing deportation. Each one a thread in a tapestry of human suffering, woven against the backdrop of laws and policies.
+
+I close my Bible, the weight of the world settling on my shoulders. My faith demands obedience, yes, but also compassion. It demands discernment, a constant striving to understand God's will in a world filled with shadows and complexities. The answer, I suspect, lies not in easy pronouncements, but in the messy, imperfect work of loving my neighbor, advocating for justice, and praying for wisdom. It is a daily, desperate plea: *Lord, help me to see the world through your eyes, and to act with your heart.*
