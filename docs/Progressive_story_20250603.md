@@ -1,0 +1,9 @@
+The flickering neon sign of "El Norte" cast a sickly green glow across Maria's face as she scrolled through Reddit. Another thread, another plea for help navigating the labyrinthine world of visas and green cards. Her heart ached for the Afghan national, stranded and alone, facing the cold scrutiny of border agents. It was a system designed to dehumanize, to reduce people to mere paperwork.
+
+Maria slammed her laptop shut. This wasn't just about faceless statistics; it was about real lives, dreams deferred, families torn apart. She thought of her own abuela, who’d scrubbed floors for years, sending every spare penny back to Oaxaca so her family could have a chance at a better life. The system hadn't been kind to her either.
+
+She grabbed her protest sign, freshly painted with the words "Migration is a Human Right." Tomorrow, she'd stand outside the ICE detention center, a lone voice against a chorus of indifference. It felt futile sometimes, like shouting into a hurricane. But she couldn’t stand idly by while people were treated like pawns in a political game.
+
+The story of the friend's dad, building a life in the shadows, haunted her. He was a father, a worker, a human being. But the system only saw him as "illegal," a threat to be deported. She thought about the tech worker, facing deportation because of a mistake, and the family who had lost their home because of a coyote. It was a system that exploited the vulnerable and punished the desperate.
+
+Maria knew the fight was far from over. But she also knew that every act of resistance, every voice raised in protest, chipped away at the walls of injustice. She would keep fighting, keep advocating, keep demanding a world where everyone, regardless of their origin, had the chance to live with dignity and respect. Because that wasn't just a dream; it was a right.
