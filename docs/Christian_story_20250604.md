@@ -1,0 +1,11 @@
+The flickering screen cast an ethereal glow on my worn Bible. Reddit again. Another rabbit hole of anxieties and hopes, the raw, unfiltered anxieties of those yearning for a place in this nation. It’s a strange pulpit, this digital forum, yet it echoes with the same cries for understanding, for mercy, that David himself poured out in the Psalms.
+
+My heart aches for the Afghan husband, navigating the labyrinth of immigration alone, burdened by the weight of a nation’s prejudice. I pray for God to grant him favor in the eyes of the officers, to see beyond the headlines and recognize the man beneath. And then, the young couple co-signing a lease, seeking to prove the legitimacy of their love to a system that demands tangible proof of something so intangible. It reminds me of Jacob's long years of service for Rachel, a testament to love's enduring power.
+
+But there are also the darker corners. The man blackmailing his new wife with immigration status, twisting a sacred covenant into a tool of manipulation. Such blatant disregard for God's design for marriage chills me. I pray for justice for the abused, for deliverance from the clutches of those who exploit the vulnerable.
+
+And the question of birthright citizenship… It stirs a disquiet within me. The Fourteenth Amendment, a cornerstone of American identity, yet debated, challenged, viewed as a threat to financial stability. The world clamors for justice and mercy, and I believe in the need to be welcoming to the strangers in our land.
+
+But as I read, I also see the temptation to prioritize earthly security over biblical principles. The fear of financial ruin, a modern-day golden calf, blinding us to the needs of our neighbors. Where is our trust? Is it in our policies, our laws, or in the God who promises to provide?
+
+I close my laptop, the blue light fading. The digital cries fade, but the echoes remain. Another night spent wrestling with the complexities of this world, striving to reconcile faith with reality. I can only offer my prayers, my empathy, and the unwavering hope that God’s will, His justice, will ultimately prevail in this land of immigrants. I need to pray to better seek His face and better see Him in others.
