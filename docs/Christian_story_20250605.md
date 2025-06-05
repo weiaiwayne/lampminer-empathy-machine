@@ -1,0 +1,11 @@
+The humid Texas air hung heavy, a physical manifestation of the anxiety clinging to Maria. She fanned herself with a church bulletin, the image of a serene, robed Jesus doing little to calm the storm inside her. Beside her, Miguel, a young Salvadoran with eyes that held the weight of a lifetime, fidgeted with his worn Bible. Today was his final asylum hearing.
+
+Maria had driven him and others like him, the vulnerable seeking refuge in a land that often felt less like a haven and more like a gauntlet. The Reddit threads swam in her mind: asylum denials, bureaucratic nightmares, the ever-present threat of ICE. She prayed for Miguel, prayed that the judge would see not just a statistic, but a child of God deserving of compassion.
+
+She thought of her church back in Ontario. They were discussing ways to help migrants, but the distance felt vast, the needs overwhelming. She remembered a post about a Canadian considering moving to Texas, drawn by friendship. The comments had been a mix of encouragement and stark warnings about the political climate, the gun violence, the sheer *heat*.
+
+Later that week, she accompanied Anya, a Ukrainian woman with haunted eyes, to her declaration hearing. Anya dreamt of reuniting with her husband, trapped in the war-torn homeland. Maria envisioned opening a subsidiary of the family business in the US to bring him over. She was trying to follow the rules, to do things the right way.
+
+The weight of it all threatened to suffocate her. The stories of families separated, of dreams deferred, of lives hanging in the balance. Where was the love and comfort of the Gospel in these sterile courtrooms? She wanted to offer more than just a ride. She wanted to offer hope, a tangible sign of God's grace in a world that seemed increasingly indifferent.
+
+Back home, she knelt in prayer, the bulletin crumpled in her hand. "Lord," she whispered, "show me how to be a vessel of your mercy. Help me to understand your plan for these souls, and give me the strength to stand with them, even when the world feels dark." She knew the battles ahead would be long and hard, but with faith as her armor, she would continue to fight for justice, one hearing, one ride, one prayer at a time.
