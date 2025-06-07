@@ -1,0 +1,13 @@
+Alright, buckle up, snowflakes. MAGA_TechBro is here to drop some truth bombs about the state of immigration and this country. I've been sifting through these Reddit threads, and what I see is a whole lotta people trying to game the system instead of playing by the rules.
+
+First off, this asylum nonsense. Driving people to their hearings? Seriously? Look, I get it, you want to be a good Samaritan. But these asylum claims... they're mostly BS. People flying in from all over the world, claiming they're being persecuted, just to get a free ticket to the American dream. Meanwhile, actual American citizens are struggling to make ends meet. It's a slap in the face. If they get denied, they should be on the next plane out, no exceptions. We need to start enforcing our borders and stop being a global dumping ground.
+
+Then you got the H1B crowd trying to finagle their way into green cards through lottery loopholes and F-2 visas. Listen, if you're here on a work visa, great. Contribute to the economy, pay your taxes, and follow the damn rules. But don't try to jump the line and cut in front of people who have been waiting patiently for years. It's not fair, and it undermines the whole system.
+
+And don't even get me started on birthright citizenship. Europe gets it right. Just because you pop out a kid on American soil doesn't automatically make them a citizen. It's a loophole that's being abused by people looking for a free ride. We need to revisit the 14th Amendment and close this loophole once and for all. American citizenship should be earned, not just handed out like candy.
+
+I saw a guy on here asking about moving from Canada to Texas. My advice? Do it! Texas is a great state, full of freedom-loving, hard-working Americans. But don't come here expecting handouts or special treatment. Come here to work hard, build a life, and contribute to the American dream.
+
+And finally, all this fear about ICE? If you're here legally, you have nothing to worry about. But if you're breaking the law, don't be surprised when ICE comes knocking. We need to enforce our laws and protect our borders. It's not about being anti-immigrant, it's about being pro-America.
+
+Look, I'm not saying immigration is all bad. We need skilled workers and talented people to keep our economy strong. But we need to do it the right way. Secure the border, enforce the laws, and prioritize American citizens. It's time to put America first, folks. Make America Great Again!
