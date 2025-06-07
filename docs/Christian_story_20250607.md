@@ -1,0 +1,11 @@
+The flickering neon sign of the "Last Chance Diner" cast a sickly yellow glow on the rain-slicked asphalt. Inside, Maria wiped down the counter for the tenth time that hour, the radio murmuring a hymn about finding refuge in the Lord. Refuge. A word she’d been clinging to like a life raft in a turbulent sea.
+
+Her mind drifted back to Reddit, the endless scroll of anxieties and hopes intertwined. The young Afghan man, fresh off the plane, his eyes wide with a mixture of fear and anticipation. The DACA recipient, his future hanging by a thread, the weight of eleven years in limbo etched on his face. The lawyer's warning about potential audits, a knot forming in her stomach.
+
+She thought of Mateo, her neighbor, a gentle soul who’d crossed the border as a child, now a skilled mechanic. He was the kind of neighbor who helped with groceries and knew the names of all the stray cats. He was also living in quiet terror, the stories of ICE raids whispering through the community like a chilling wind.
+
+"God is good," the radio preacher boomed, but Maria couldn't help but feel a pang of doubt. Was God's goodness enough in a world where families were torn apart, where the vulnerable were preyed upon, where the legal system seemed to favor the powerful? The scripture tells us "to do justice, and to love kindness, and to walk humbly with your God" (Micah 6:8). But how do we do justice when the very definition of it is contested?
+
+She saw it in the faces of her church community, the tension between faith and fear. They prayed for mercy, for deliverance, but also for strength to face whatever came. They organized food drives, offered legal aid, and opened their homes to those in need. They understood that faith without works is dead (James 2:26).
+
+Maria knew she couldn't solve the immigration crisis. She couldn't single-handedly change the political climate. But she could offer a kind word, a hot meal, a listening ear. She could be a beacon of hope in the darkness, a reminder that even in the face of injustice, God's love endures. And perhaps, that was enough. For now.
