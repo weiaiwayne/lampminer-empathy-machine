@@ -1,0 +1,11 @@
+The flickering neon sign of the "Last Chance Diner" cast a sickly yellow glow on Maria's face. Inside, the air hung thick with the smell of stale coffee and desperation. Maria clutched a worn Bible, its pages softened by years of silent prayers. She was waiting for Javier, her only son, a gentle soul who dreamed of fixing airplanes, not dodging ICE vans.
+
+Javier, brought here as a child, faced an asylum interview in two weeks. Eleven years he'd lived in the US, his entire adult life. Maria couldn't bear the thought of him being sent back to a country he barely remembered, a country steeped in violence and political turmoil. Every news story about deportations felt like a knife twisting in her heart.
+
+She thought of the Reddit threads she'd been reading, a desperate attempt to understand the tangled web of immigration law. So many stories of hope and heartbreak. The student visa anxieties, the H1B nightmares, the asylum seekers clinging to threads of faith. She saw a reflection of Javier's struggle, and her own, in every post.
+
+Maria knew God had a plan, but sometimes His plan felt impossibly cruel. She wondered, as she often did, about the purpose of suffering. Was it a test of faith? A consequence of sin? Or simply the chaotic nature of a fallen world? The reformed theology she clung to spoke of God's sovereignty, but it offered little comfort in the face of such immediate fear.
+
+The door chimed, and Javier walked in, his eyes shadowed with worry. He'd just come from a meeting with their lawyer, who'd advised him to emphasize his commitment to the community, his value to the country. Maria watched him, her heart aching. He was a good man, a God-fearing man. Was that not enough?
+
+As they prayed together, Maria sought solace in the promise that God works all things together for good, for those who love Him. It was a promise she desperately needed to believe, even as the neon sign outside continued to flicker, a constant reminder of the precariousness of their existence. They were just two souls, adrift in a sea of uncertainty, clinging to faith and each other, hoping for a miracle in a world that often seemed devoid of grace.
