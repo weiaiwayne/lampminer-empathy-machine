@@ -1,0 +1,9 @@
+Okay, so like, I was just scrolling through Reddit, right? And it's the same old stuff. People stressed about visas, green cards, ICE... the whole shebang. Makes you kinda glad you're just chilling, you know? No skin in the game.
+
+Anyway, this one post caught my eye. Dude lost his green card and driver's license. Total disaster, right? No ID, can't drive, can't prove he's got the right to be here. Stuck in this bureaucratic nightmare. And it hit me, like, imagine being that guy. You're just trying to live your life, maybe binge-watch some Netflix, and suddenly your whole world is flipped upside down because of a lost wallet.
+
+Then there's all this talk about deportations. People scared, families getting separated. You see the comments, the anger, the fear... and it's like, damn, everyone's just trying to survive, trying to find a little corner of happiness in this crazy world. But the system's rigged, the rules are confusing, and some dude on a power trip can ruin your life with a signature.
+
+And then you see the memes, the cat videos, the tech reviews... it's like a distraction from all the heavy stuff. A reminder that life goes on, even when the world is burning. New iPhone dropping, gotta cop that, even if you are about to get deported. Is that dark humor? What do you call that?
+
+I don't know, man. It's all just... a lot. I'm gonna go watch some TikToks and try not to think about it too much. Maybe order a pizza. Life's too short to stress about stuff you can't control, right? Gotta focus on the important things. Like, is the new PS6 gonna be backwards compatible? *That's* what really matters.
