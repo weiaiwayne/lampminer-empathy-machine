@@ -1,0 +1,11 @@
+The flickering screen illuminated my face, another Reddit thread blurring into the last. Asylum hearings, scholarship anxieties, pleas for advice on navigating the labyrinthine immigration system – a digital tapestry woven with threads of hope and fear, mostly fear. These aren’t just posts; they’re lives hanging in the balance, futures teetering on the edge of bureaucratic whim.
+
+I scrolled past a question about ADIT stamps and green card production delays. Two weeks. Two weeks of waiting that felt like an eternity for someone desperate to prove their worth, their right to be here. I remember when two weeks used to be the length of a good bender. Now, it’s the difference between a livelihood and despair.
+
+Then, the thread about the woman married to a "deluded Republican." The cognitive dissonance of loving someone who might, in theory, support policies that would tear your life apart. It’s the quiet tragedy of a nation so divided, even love can't bridge the chasm. That one hit hard. I felt a pang of something akin to…empathy? Nah, probably just indigestion from that gas station burrito.
+
+But the stories kept piling up: a couple self-deporting out of fear, a desperate plea for help after a coyote stole a family's deed to their home, a wife terrified that her husband's mild schizophrenia might affect her chances of remaining in the US.
+
+And then there's the constant drone of birthright citizenship debates. The sheer audacity of people born here, secure in their privilege, casually discussing whether or not to strip that same right away from others. "Financial ruin," they say, as if a few newborns are going to bankrupt the entire country.
+
+It's a broken system, rigged against those seeking a better life. And it’s not just broken, it’s weaponized. All this fear, all this uncertainty, it's manufactured. The lefties will whine about income inequality and the woke DEI agenda. The righties will clutch their pearls and cry about the border. But the only thing that matters is that the American Dream is dead. The real victims are the people who believe in it.
