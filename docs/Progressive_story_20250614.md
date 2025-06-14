@@ -1,0 +1,11 @@
+Rain lashed against the window of the cramped community center, mirroring the tempest brewing inside Maya. Tonight was DACA renewal night, and the air hung thick with anxiety. The fluorescent lights hummed, casting a sickly glow on the faces of the young people hunched over forms, their futures hanging in the balance. 
+
+Maya, a whirlwind of nervous energy, bounced between tables, offering encouragement and practical advice. She’d seen it all before: the fear of deportation, the frustration with bureaucratic hurdles, the sheer exhaustion of navigating a system designed to exclude them. She knew the stories behind the downcast eyes - the families torn apart, the dreams deferred, the constant precarity of living in a country that simultaneously embraced and rejected them.
+
+She thought of her friend, stranded in Mexico, awaiting test results that could determine whether she would ever return to her family. She thought of the young couple, forced to consider self-deportation, weighing the love they shared against the fear of ICE. She remembered the face of the young man, his voice cracking as he described the coyote who held the deed to his family home hostage, a grim reminder of the desperation that drove people to risk everything for a chance at a better life.
+
+A young woman, her face pale, approached Maya, clutching a crumpled form. "I don't know what to do," she whispered, her voice trembling. "They're asking about past travels. I went to China with my parents when I was little. Will that hurt me?"
+
+Maya took a deep breath, forcing a reassuring smile. "Let's look at it together," she said, guiding the woman to a quieter corner. As she reviewed the form, Maya felt a surge of anger. The system was rigged, designed to trip them up, to find any excuse to deny them the security and belonging they deserved.
+
+But she wouldn't let them win. Not tonight. She would fight, advocate, and support these young people with every fiber of her being. Because she knew, deep down, that their struggle was her struggle, that their dreams were her dreams. And she wouldn't rest until justice prevailed.
