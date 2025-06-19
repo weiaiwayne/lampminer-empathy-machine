@@ -1,0 +1,11 @@
+The flickering neon sign of "Hope & Glory Immigration Services" cast a sickly green glow on the rain-slicked street. Inside, Maria clutched her worn Bible, its pages softened with years of fervent prayer. She scrolled through Reddit on her phone, a jarring juxtaposition of ancient faith and modern anxieties. The screen illuminated her face, etched with worry lines that belied her thirty-something years.
+
+Pedro Pascal's words from Cannes echoed in her mind: "Deportation is real." She felt the weight of it not for herself, a citizen by birth, but for the faces she'd seen on the subreddit r/immigration, each a story of longing and uncertainty. The Afghan husband traveling alone, the DACA recipient’s accidental self-deportation, the mother terrified of ICE raids in her city.
+
+Maria closed her eyes, the digital noise momentarily receding. She remembered Jesus's words, "I was a stranger, and you welcomed me." But these strangers, these modern-day refugees, were met with suspicion, red tape, and the constant threat of forced removal.
+
+She thought of the young boy in her church, pending DACA since 2020, needing legal entry for any path to residency. His future, like so many others, hung precariously in the balance. She couldn't dismantle birthright citizenship, or single-handedly reform the immigration system. But she could offer a ride to a hearing, a listening ear, a prayer whispered for a favorable outcome.
+
+The H1B visa holder, facing layoffs and scrambling to secure a green card through marriage, was another soul she carried in her heart. The fear of financial ruin, compounded by the complexities of immigration law, felt like a burden too heavy to bear.
+
+Maria opened her eyes, the green light a stark reminder of the world's harsh realities. Yet, within her, a flicker of hope remained. She would continue to extend grace, to offer practical help, and to pray for a more just and compassionate world, one guided by the love of Christ rather than the fear of the "other." She would trust that God's plan, though often incomprehensible, ultimately sought the good of all humanity, even those caught in the labyrinth of immigration laws. Her faith, however tested, remained her anchor in the storm.
