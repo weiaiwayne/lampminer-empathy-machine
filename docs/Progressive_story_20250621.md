@@ -1,0 +1,11 @@
+The fluorescent hum of the community center buzzed in my ears, a sound as constant and irritating as the fear that gnawed at the edges of my mind. Maria, her face etched with a weariness that belied her twenty-something years, clutched a crumpled asylum application. Her son, Mateo, a miniature whirlwind of energy, chased dust bunnies across the linoleum floor, oblivious to the precariousness of their existence.
+
+I was there, ostensibly, to help them navigate the labyrinthine world of immigration law. But lately, "help" felt like a hollow word, a band-aid on a gaping wound. The news was a relentless tide of deportations, policy changes, and blatant xenophobia. Every success felt like a fragile victory snatched from the jaws of defeat.
+
+Maria spoke of her final hearing, her voice barely a whisper. The fear of being separated from Mateo, of being sent back to a country that held only danger, hung heavy in the air. I wanted to offer her reassurance, but the truth choked me. The system was a roulette wheel, spinning on biases and political whims.
+
+Later, scrolling through Reddit, I saw the familiar anxieties mirrored in countless posts. A student worried about a visa denial, a green card holder fearing a border stop, a DACA recipient wondering if they would be next. Each story a thread in a vast, tangled web of uncertainty, woven with hope and despair.
+
+A cold anger simmered within me. The system, designed to offer refuge and opportunity, had become a weapon, wielded with callous indifference. How could we stand idly by as families were torn apart, as dreams were crushed under the weight of bureaucracy and prejudice?
+
+Mateo, momentarily still, sat at my feet, his eyes wide with innocent curiosity. He deserved a future, a life free from fear. And so did Maria, and all the others caught in this cruel game. The hum of the fluorescent lights seemed to intensify, a call to action. "Help" might feel inadequate, but silence was complicity. There was work to be done, a fight to be fought, one application, one hearing, one voice at a time.
