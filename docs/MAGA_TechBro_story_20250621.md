@@ -1,0 +1,11 @@
+The fluorescent hum of the waiting room was a constant, a low-grade anxiety soundtrack. Maria clutched her worn copy of *One Hundred Years of Solitude*, the yellowed pages offering a momentary escape from the sterile reality of the immigration hearing. As the only US citizen in her office, she'd become the designated driver, the reluctant shepherd leading her colleagues through the labyrinthine process.
+
+Today, it was Fatima's final asylum hearing. Fatima, a wisp of a woman with eyes that held the weight of Aleppo, had become more than just a coworker; she was a friend. Maria knew Fatima's story, the bombs, the loss, the desperate flight to safety. The thought of Fatima being denied, being thrust back into that nightmare, made Maria's stomach clench.
+
+Across the room, Javier scrolled through Reddit on his phone, his brow furrowed. He was trying to navigate the treacherous waters of adjusting his status from H1B to F-2. The DV lottery win hung over him like a double-edged sword, a potential path to permanence tangled with the complexities of his current visa.
+
+Maria glanced at Javier, then back at her book. Macondo felt closer than ever. The stories of displacement, of searching for a place to belong, resonated with a new, painful clarity. She thought of her own ancestors, the huddled masses who had flocked to this land seeking refuge. Had they faced the same bureaucratic hurdles, the same fear of rejection?
+
+A gruff voice shattered her reverie. "Fatima Khalil?"
+
+Fatima rose, her face pale but determined. Maria squeezed her hand, offering a silent prayer to a God she wasn't sure she believed in anymore. As Fatima disappeared through the heavy oak doors, Maria opened her book, but the words blurred. All she could see was Fatima's face, etched with hope and fear, a single thread in the vast, intricate tapestry of immigration. The hum of the fluorescent lights seemed to grow louder, a relentless reminder of the uncertainty that hung in the air, a weight borne by so many in this land of promise, a promise that often felt like a cruel illusion.
