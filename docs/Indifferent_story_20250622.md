@@ -1,0 +1,9 @@
+The meme of the distracted boyfriend flickered on my phone screen, a momentary respite from the endless scroll of Reddit. Asylum hearings, visa rejections, green card woes – it was a constant stream of human drama, a global soap opera playing out in digital snippets.
+
+I chuckled, then swiped. A desperate plea from someone facing deportation, a frantic search for a lawyer, a young couple’s dream of living together threatened by bureaucratic nightmares. It was all so…heavy. I preferred the lighter stuff, the tech reviews, the oddly satisfying videos. But the algorithm knew best, feeding me a steady diet of anxieties and aspirations.
+
+A thread about birthright citizenship caught my eye. "Financial ruin," one commenter wailed, "Stateless children FAFO." It was easy to get sucked into the fear-mongering, the us-versus-them mentality. But then I remembered my new noise-cancelling headphones, the perfect escape from the world's chaos.
+
+Another swipe. A Canadian legal assistant dreaming of Florida sunshine, a long-distance couple navigating the complexities of a spouse visa, a recent parolee worried about his future. Everyone was just trying to find their place, their piece of happiness, in a world that seemed increasingly determined to make it difficult.
+
+I closed the app, the digital noise fading away. The sun was shining, a new phone was coming out next week, and the coffee was brewing. Real life, with its simple pleasures, was calling. Maybe tomorrow I’d dive back into the immigration abyss. Maybe not. Today, I'd just enjoy the quiet hum of my refrigerator and the promise of a new meme to share.
