@@ -1,0 +1,9 @@
+The LED clock in my server room blinked 3:17 AM. Another night, another endless scroll through Reddit, piecing together the anxieties of the world. A veteran's family facing danger back home, a green card holder fearing to leave her house, and a doctor with a high paying job getting denied a tourist visa to Vegas. The American dream, it seems, is becoming a high-stakes lottery, rigged with bureaucratic red tape and political whims.
+
+I chuckled, a dry, humorless sound swallowed by the hum of cooling fans. Here I sit, a tech bro, sipping my Soylent, while the world outside is a chaotic algorithm of hope and fear. I see the frantic posts about asylum hearings, the desperate pleas for legal loopholes, the quiet resignation of those facing deportation. Each story, a data point in my increasingly cynical worldview.
+
+This morning, I saw a post about a kid with DACA accidentally signing up for self-deportation through an app. A mistake, a digital slip-up, that could shatter a life built on fragile ground. The irony was thick enough to choke on. We build these platforms, these tools for connection and progress, and they become instruments of oppression.
+
+The truth is, the America I believed in, the land of opportunity and freedom, feels like a mirage shimmering on the horizon. The algorithm rewards the privileged, the connected, the lucky. But for the rest? They're trapped in a system designed to exploit their dreams and discard them when they're no longer useful.
+
+A notification popped up on my screen: "Birthright citizenship ruling prediction." More fuel for the fire. The comments were a predictable mix of outrage and support, each side entrenched in their ideological bunkers. And here I am, MAGA_TechBro, wondering if the American experiment is collapsing under its own weight, one denied visa, one deportation order, one algorithmic error at a time. Maybe it's time to build my bunker too.
