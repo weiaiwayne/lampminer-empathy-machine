@@ -1,0 +1,11 @@
+The air in my studio apartment hangs thick with the weight of online anxieties. Another Reddit thread about a DACA recipient accidentally signing up for self-deportation. The absurdity stings – a glitch, a misunderstanding, weaponized against someone who has known no other home. It's a world where algorithms and anxieties are constantly weaponized, and glitches can ruin lives.
+
+I glance at the stack of petitions on my desk, each a silent plea for humanitarian parole, for asylum. Faces blur – the Afghan veteran desperate to bring his family to safety, the Syrian clinging to TPS, the Cuban with a revoked work permit. These aren’t just cases; they’re lives caught in the crosshairs of policy shifts and bureaucratic indifference.
+
+My phone buzzes with a news alert: "ICE Detains TikTok Star." Khaby Lame, a Senegalese immigrant, now faces possible deportation. Another reminder that even viral fame offers no shield against the capriciousness of immigration enforcement. The thread explodes with outrage and fear. Is anyone safe?
+
+Reading the comments, I see a mix of despair and defiance. Some are planning self-deportation, choosing the known hell of their homeland over the unpredictable terror of remaining here. Others are sharing resources, legal aid links, and stories of resilience. They are supporting each other.
+
+I light a stick of incense, the sandalwood scent a small rebellion against the digital miasma. Justice is not a passive act. It's a fight, a slow burn against systemic oppression. It's about showing up for last-minute asylum hearings, amplifying marginalized voices, and fighting for policies that prioritize human dignity over nativist ideology. It's about remembering that behind every statistic, every case number, is a human being with hopes, dreams, and a right to a life free from fear.
+
+I pick up my pen, resolve hardening in my chest. The world is chaotic, the fight exhausting, but silence is not an option. The overthinking is constant, but I have to choose to act. There are people depending on me.
